@@ -8,8 +8,16 @@ Passionate about learning and exploring the latest technologies.
 - 💬 Ask me about ... I like exploring github for all new things related to javascript.
 - 📫 How to reach me: ... Reach me [at] [ngrohitv5.com](https://www.linkedin.com/in/rohit-v5/) 
 
-![Rohit's Github Stats](https://github-readme-stats.vercel.app/api?username=rohitv5&count_private=true&theme=default&show_icons=true)
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=rohitv5" alt="rohit" /> </p>
+<!-- ![Rohit's Github Stats](https://github-readme-stats.vercel.app/api?username=rohitv5&count_private=true&theme=default&show_icons=true)
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=rohitv5" alt="rohit" /> </p> -->
+### ⚙️ &nbsp;GitHub Analytics
+
+<p align="center">
+<a href="https://github.com/vivek9patel">
+  <img height="180em" src="https://github-readme-stats-eight-theta.vercel.app/api?username=rohitv5&show_icons=true&theme=algolia&include_all_commits=true&count_private=true"/>
+  <img height="180em" src="https://github-readme-stats-eight-theta.vercel.app/api/top-langs/?username=rohitv5&layout=compact&langs_count=8&theme=algolia"/>
+</a>
+</p>
 
 <h3 align="left">Languages and Tools:</h3>
 My Current Primary Stack includes <b>React, Typescript, Sass, Jest, GraphQL, Nginx, Express, Git, Figma</b>.
