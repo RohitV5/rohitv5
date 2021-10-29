@@ -1,6 +1,6 @@
 ### Hi there 👋 , I'm Rohit.
 
-I’m primarily a human being who loves to code ❤️.
+A big fan of javascript ❤️.
 Passionate about learning and exploring the latest technologies.
 
 - 🔭 I’m currently working on ... javascript.
