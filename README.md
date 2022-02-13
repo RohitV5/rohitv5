@@ -1,5 +1,3 @@
-![Internet not working gif](https://github.com/saadeghi/saadeghi/raw/master/dino.gif)
-
 ### Hi there 👋 , I'm Rohit.
 
 Learning and exploring the latest technologies.
