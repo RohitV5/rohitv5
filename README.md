@@ -2,8 +2,7 @@
 
 ### Hi there 👋 , I'm Rohit.
 
-A big fan of javascript ❤️.
-Passionate about learning and exploring the latest technologies.
+Learning and exploring the latest technologies.
 
 - 🔭 I’m currently working on ... javascript.
 - 🌱 I’m currently learning ... React, AWS Serverless, GraphQL, and other javascript frameworks (Angular, NestJS) etc
