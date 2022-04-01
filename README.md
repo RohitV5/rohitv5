@@ -1,3 +1,4 @@
+![Rohit](https://user-images.githubusercontent.com/23634935/161251451-aa942c53-b391-4817-b8ea-7004452fc572.png)
 ### Hi there 👋 , I'm Rohit.
 
 Learning and exploring the latest technologies.
