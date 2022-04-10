@@ -1,5 +1,6 @@
 name: Random Trivia Update
 
+
 on:
   schedule:
     - cron: '*/5 * * * *'
