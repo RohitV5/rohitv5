@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
