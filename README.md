@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+166 is luxembourg ranks #166 in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
