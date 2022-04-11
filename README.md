@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
