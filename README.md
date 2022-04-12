@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+168 is the number of episodes that the The Mary Tyler Moore Show ran on CBS from 1970 to 1977.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
