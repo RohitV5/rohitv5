@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
