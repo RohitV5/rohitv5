@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
+120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
