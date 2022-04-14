@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the number of pence in a pound in the British currency until 1971.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
