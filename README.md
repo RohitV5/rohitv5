@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the atomic number of berkelium.
+169 is miles that the Thames River flows through Ontario, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
