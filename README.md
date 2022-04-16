@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
