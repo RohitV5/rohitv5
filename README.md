@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the population of Perlethorpe, Nottinghamshire England.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
