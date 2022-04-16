@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
+5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
