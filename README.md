@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is the number of episodes for the different regions in the PokÃ©mon anime.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
