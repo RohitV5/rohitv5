@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000 is the number of neurons in the human brain.
+108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
