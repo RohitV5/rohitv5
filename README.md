@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
