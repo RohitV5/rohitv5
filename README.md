@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
