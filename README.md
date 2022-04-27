@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+38 is the number of surviving plays written by William Shakespeare.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
