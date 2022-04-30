@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-209 is the basketball record for most three pointers in a row.
+169 is miles that the Thames River flows through Ontario, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
