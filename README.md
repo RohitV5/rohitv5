@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the distance (meter) from archer to targets in Olympic Archery.
+28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
