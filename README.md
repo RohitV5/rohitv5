@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
