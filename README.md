@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
