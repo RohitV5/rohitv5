@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+3 is the minimum odd number of voting components for simple easy redundancy checks by direct comparison.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
