@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+5200 is the number of standard size of a legion in the Roman Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
