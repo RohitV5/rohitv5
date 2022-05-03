@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
+93 is the atomic number of neptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
