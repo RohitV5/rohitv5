@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+17 is the number of syllables in a haiku (5+7+5).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
