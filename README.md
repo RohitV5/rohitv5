@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the estimation of the game-tree complexity in the game of Go.
+123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
