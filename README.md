@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the atomic number of the element roentgenium (Rg).
+81 is the number of prayers said in the Rosary in each night.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
