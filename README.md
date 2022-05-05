@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+18 is the number of colors the labels for Crayola crayons come in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
