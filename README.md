@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the feet that three-time Olympic gold medalist John Flanagan achieved in the hammer throw in 1904 (168 feet, 1 inch).
+80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
