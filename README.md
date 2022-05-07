@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+364 is the total number of gifts received in the song "The Twelve Days of Christmas".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
