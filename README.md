@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the rank of Mongolia in world population.
+32 is the number of brains a leech has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
