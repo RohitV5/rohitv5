@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+28 is the number of days the curing time of concrete is classically considered to be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
