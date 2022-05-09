@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the number of years of marriage marked in a silver wedding anniversary.
+199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
