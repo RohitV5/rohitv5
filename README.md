@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
