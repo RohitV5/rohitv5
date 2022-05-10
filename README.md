@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the number of books in the Old Testament according to Protestant canon.
+144 is the number of months in 12 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
