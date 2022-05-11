@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
