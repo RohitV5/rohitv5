@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the number Bill and Ted were thinking of when talking to their future selves.
+10 is the Number of dots in a tetractys.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
