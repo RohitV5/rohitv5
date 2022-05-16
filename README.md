@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
