@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the rank Grenada in world population.
+242 is the area code of The Bahamas located in the North West Atlantic Ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
