@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
