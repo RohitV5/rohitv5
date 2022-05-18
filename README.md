@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the number of galaxies in the observable universe.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
