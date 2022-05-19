@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the temperature in Farenheit at which alcohol boils.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
