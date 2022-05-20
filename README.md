@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is the number of Nobel Prize in Literature laureates.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
