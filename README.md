@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+181 is the wing area of a Boeing 757 airplane in meters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
