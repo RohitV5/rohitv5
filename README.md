@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
+6800 is the approximate number of languages in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
