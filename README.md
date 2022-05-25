@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is a sacred number honored by Beans for many generations.
+186 is a police term for a murder or homicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
