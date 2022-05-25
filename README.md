@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the minimum age of candidates for election to the United States House of Representatives.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
