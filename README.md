@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
