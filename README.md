@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
