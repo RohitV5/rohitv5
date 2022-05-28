@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
