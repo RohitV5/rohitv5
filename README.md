@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
