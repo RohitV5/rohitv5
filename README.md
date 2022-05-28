@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the number of chapters in the Book of Mormon.
+117 is the atomic number of a recently discovered element temporarily called ununseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
