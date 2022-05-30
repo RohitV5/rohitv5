@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+23 is the number of times Julius Caesar was stabbed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
