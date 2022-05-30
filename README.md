@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the speed of rush hour traffic on average in kilometres per hour in London.
+11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
