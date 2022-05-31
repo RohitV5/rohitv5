@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
+106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
