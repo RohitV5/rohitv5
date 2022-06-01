@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
+114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
