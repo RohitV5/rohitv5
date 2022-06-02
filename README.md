@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+132 is the number of runs Pakistan was shot out o hand over the World cup trophy to a strong australian team in the Cricket World Cup 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
