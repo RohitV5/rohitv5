@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is a police term for a murder or homicide.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
