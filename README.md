@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the approximate number of days it takes Mercury to complete its orbit.
+5500000 is the number of jews killed in the Holocaust.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
