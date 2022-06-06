@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
+4200000 is the number of couples in the United States that live together but are not married.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
