@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
+4 is the number of human blood groups (A, B, O, AB).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
