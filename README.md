@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-432 is three-dozen sets of a dozen, making it three gross.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
