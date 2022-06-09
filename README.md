@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the rank of the Solomon Islands in population density.
+334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
