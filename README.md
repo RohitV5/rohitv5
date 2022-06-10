@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the atomic number of plutonium.
+214 is the first area code of metropolitan Dallas, Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
