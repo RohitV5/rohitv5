@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
+174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
