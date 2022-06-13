@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the number of constellations in the sky as defined by the International Astronomical Union.
+112 is the number of surat al-Ikhlas in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
