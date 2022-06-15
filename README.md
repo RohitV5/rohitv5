@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the height in feet that stalks of sugar cane can reach up to.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
