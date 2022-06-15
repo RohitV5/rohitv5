@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
