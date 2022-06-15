@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
+189 is the rank of Brazil in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
