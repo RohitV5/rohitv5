@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+16777216 is the number of different colors that can be generated using the hex code system in HTML.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
