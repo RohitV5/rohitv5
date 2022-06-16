@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the number of yards in an American football field (not including the end zones).
+176 is the rank of Madagascar 176 world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
