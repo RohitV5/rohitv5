@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+41 is the number of soldiers in The Expendables (2010 film) tactor Eric Roberts laments to his subordinates about having been killed by star Sylvester Stallone in his escape from their island.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
