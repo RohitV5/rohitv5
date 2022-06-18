@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000 is the number of neurons in the human brain.
+104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
