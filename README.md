@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
+133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
