@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
+63 is the number of groats in a guinea in British pre-decimal currency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
