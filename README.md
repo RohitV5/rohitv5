@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the number of degrees in the quincunx astrological aspect explored by Johannes Kepler.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
