@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
