@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is cans of Spam consumed every second in the United States.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
