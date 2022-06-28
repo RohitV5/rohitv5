@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the atomic number of an element called Ununseptunium.
+91 is the atomic number of protactinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
