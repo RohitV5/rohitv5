@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000 is the number of turkeys Americans eat at Thanksgiving annually.
+111 is the atomic number of the element roentgenium (Rg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
