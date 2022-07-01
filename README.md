@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+28 is the number of grams in an ounce (approximately), and used as such in the illegal drug trade.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
