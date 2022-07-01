@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the rank of Belize in world population.
+6 is the standard length (year) of a term in office for a United States senator.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
