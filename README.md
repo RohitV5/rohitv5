@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the number of throws in Judo.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
