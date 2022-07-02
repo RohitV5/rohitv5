@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-800000000 is the number of active users on Facebook as of December 2011.
+198 is the rank of Best of Little Walter (1964) by Little Walter on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
