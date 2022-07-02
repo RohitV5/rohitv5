@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
