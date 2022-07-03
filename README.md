@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
