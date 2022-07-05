@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the weight in pounds of the biggest pumpkin in the world.
+108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
