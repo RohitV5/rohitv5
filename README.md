@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
