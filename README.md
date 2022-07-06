@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
