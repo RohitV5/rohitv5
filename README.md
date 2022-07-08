@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
