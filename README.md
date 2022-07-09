@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the maximum number of facial muscles a smile can require.
+6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
