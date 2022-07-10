@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-231 is the number of cubic inches in a U.S. liquid gallon.
+189 is the rank of Jersey in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
