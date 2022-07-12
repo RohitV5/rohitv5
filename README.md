@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+4 is the number of characters in a canonical four-character idiom in Chinese.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
