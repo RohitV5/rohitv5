@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
