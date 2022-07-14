@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is sMTP status code for service closing transmission channel.
+175 is the weight in grams of a flying disc used in Ultimate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
