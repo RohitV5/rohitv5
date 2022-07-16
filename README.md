@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the age of Jeanne Calment when she died.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
