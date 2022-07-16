@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the final year a person is a teenager.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
