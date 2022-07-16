@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is five gross (= 500 duodecimal, 5 × 144).
+120 is the height in inches of a regulation basketball hoop.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
