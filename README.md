@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the standard size of drum in US gallons.
+8 is the number of furlongs in a mile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
