@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the common voltage in England and Australia before conversion to 230V standard.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
