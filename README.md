@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
