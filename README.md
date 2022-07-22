@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the score in the 1916 Cumberland vs. Georgia Tech football game, with Georgia Tech winning 222-0, which was the record for most points scored by one team in an American football game.
+138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
