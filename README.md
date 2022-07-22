@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the atomic number of an element temporarily called Unseptennium.
+124 is a stable isotope of tellurium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
