@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
