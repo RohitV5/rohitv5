@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the max number of shine sprites in Super Mario Sunshine.
+111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
