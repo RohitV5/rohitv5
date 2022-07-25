@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
