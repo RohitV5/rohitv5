@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3400000000 is the number of total number of speakers of Indo-European languages.
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
