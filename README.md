@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
