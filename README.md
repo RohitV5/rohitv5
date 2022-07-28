@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
+4e+185 is the number of planck volumes in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
