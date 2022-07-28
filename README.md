@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-525998433 is the number of distinct websites as of November 2011.
+30 is the minimum age for United States senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
