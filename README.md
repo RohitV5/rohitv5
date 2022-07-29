@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of different characters that can be used with a standard English Keyboard.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
