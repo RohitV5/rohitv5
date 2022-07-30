@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the maximum possible score in one turn at darts (three triple 20s).
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
