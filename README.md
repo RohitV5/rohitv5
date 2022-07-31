@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
