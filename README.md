@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+186 is the length of the Judgment at Nuremberg measured in 186 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
