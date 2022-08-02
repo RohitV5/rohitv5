@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+198 is the rank of Marshall Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
