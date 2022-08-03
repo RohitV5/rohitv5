@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
