@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the medical telephone number in China.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
