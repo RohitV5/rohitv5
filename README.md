@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of outs in a regulation baseball game for each team at all adult levels.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
