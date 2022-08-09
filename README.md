@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
