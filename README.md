@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the maximum possible score in one turn at darts (three triple 20s).
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
