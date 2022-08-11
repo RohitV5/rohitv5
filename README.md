@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000 is the gallons of saliva an average human produces in a lifetime.
+42 is the sum of the codes of the letters in the words "BIG BANG" using the encoding A=1, B=2, C=3, etc.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
