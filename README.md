@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
