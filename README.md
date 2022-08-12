@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
+16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
