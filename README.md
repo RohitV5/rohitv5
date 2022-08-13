@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the minimum age for United States senators.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
