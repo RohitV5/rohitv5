@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
+116 is the number of pages in the Lost pages, the original manuscript of what Joseph Smith, Jr. said was the translation of the Book of Lehi, of the Golden plates revealed to him in 1827.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
