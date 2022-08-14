@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the number of players on the field in a football (soccer) match.
+300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
