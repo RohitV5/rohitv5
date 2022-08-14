@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
