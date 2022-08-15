@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the rank of Uruguay in population density.
+60 is the highest obtainable level on World of Warcraft (not including expansions).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
