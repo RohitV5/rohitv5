@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+108 is the number of cards in a deck of UNO cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
