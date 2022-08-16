@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+11 is the number of players on a soccer team on the field at a time as well as in a cricket team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
