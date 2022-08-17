@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of gallons that one barrel of petroleum holds.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
