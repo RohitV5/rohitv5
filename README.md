@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-48 is the number of Ptolemaic constellations.
+63 is the atomic number of europium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
