@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the heaviest stable isotope of any element (lead).
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
