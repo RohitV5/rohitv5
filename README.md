@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
+350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
