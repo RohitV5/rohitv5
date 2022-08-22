@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the number of episodes in the original airing of Futurama.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
