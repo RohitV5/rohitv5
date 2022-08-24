@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the atomic number of thulium, a lanthanide.
+280000000000000 is the number of possible unique physical addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
