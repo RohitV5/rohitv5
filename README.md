@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
+1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
