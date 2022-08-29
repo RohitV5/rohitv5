@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000 is the approximate number of people who fish per year in the United States.
+27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
