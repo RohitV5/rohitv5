@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the number of cents in a quarter.
+188 is the rank of Tonga in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
