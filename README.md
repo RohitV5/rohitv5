@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of innings in a regulation, non-tied game of baseball.
+10 is the number of official inkblots in the Rorschach inkblot test.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
