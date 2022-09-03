@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
