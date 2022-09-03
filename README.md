@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+124 is a stable isotope of tellurium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
