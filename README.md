@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
