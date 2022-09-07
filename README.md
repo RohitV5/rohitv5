@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67890 is the number of largest decimal places of π that have been recited from memory.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
