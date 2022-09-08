@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
+100 is the number of pounds in an American short hundredweight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
