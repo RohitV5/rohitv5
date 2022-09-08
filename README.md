@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
