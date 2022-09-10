@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-285 is the total number of Rules of Acquisition in Star Trek.
+117 is the atomic number of a recently discovered element temporarily called ununseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
