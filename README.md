@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
