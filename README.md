@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
+165 is miles of shoreline of Lake Berryessa in Napa County, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
