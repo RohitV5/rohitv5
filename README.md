@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+39 is the number of books in the Old Testament according to Protestant canon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
