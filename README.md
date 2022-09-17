@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
+174 is the populatiokn of Aupaluk, Quebec (as of 2006).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
