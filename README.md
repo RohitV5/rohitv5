@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
+216 is the number of stitches on a baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
