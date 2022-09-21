@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106000000000 is the number of homo sapiens that have lived since speciation.
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
