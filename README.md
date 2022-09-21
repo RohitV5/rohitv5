@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
