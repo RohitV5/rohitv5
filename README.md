@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+197 is the rank of the Solomon Islands in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
