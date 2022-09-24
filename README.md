@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
