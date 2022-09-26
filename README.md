@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+196 is the rank of Sweet Child o' Mine (1987) by Guns N' Roses on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
