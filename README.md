@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000 is the number of other neurons each neuron is connected to in the human brain.
+23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
