@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
