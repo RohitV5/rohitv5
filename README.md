@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
