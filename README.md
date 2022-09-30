@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+3 is cans of Spam consumed every second in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
