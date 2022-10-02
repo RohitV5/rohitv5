@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+143 is the number of milligrams of caffeine in AMP Energy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
