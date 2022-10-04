@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of files that Actor Robert Ellis appeared in films between 1913 and 1934.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
