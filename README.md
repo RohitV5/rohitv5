@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+164 is the number of episodes that the TV show Mad About You ran on NBC from 1992 to 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
