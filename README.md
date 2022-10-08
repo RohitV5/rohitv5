@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the gold or "golden" wedding anniversary in years of marriage.
+40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
