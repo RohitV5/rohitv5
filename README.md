@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
+111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
