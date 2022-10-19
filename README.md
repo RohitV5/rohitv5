@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149000000 is the number of kilometres from the Earth the sun is.
+24 is the number of a car in the NASCAR Sprint Cup Series owned by Hendrick Motorsports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
