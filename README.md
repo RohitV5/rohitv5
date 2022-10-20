@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+122 is the traffic emergency telephone number in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
