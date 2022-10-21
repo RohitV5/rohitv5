@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number of surat al-Ikhlas in the Qur'an.
+173 is the Exit status indicated by Mac App Store software when receipt validation fails.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
