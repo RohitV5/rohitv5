@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
