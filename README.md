@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes of the TV series Xena Warrior Princess.
+7 is the number of SI base units.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
