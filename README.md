@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the number of films American film actor John Wayne starred in.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
