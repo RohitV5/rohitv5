@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
