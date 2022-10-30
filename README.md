@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the intelligence Agency telephone number in Iran.
+48 is the number of Ptolemaic constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
