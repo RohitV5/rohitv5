@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the traditional number of years in a jubilee period.
+135 is the atomic number of an element temporarily called untriquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
