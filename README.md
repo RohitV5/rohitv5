@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-402000000 is the number of native speakers of English.
+108 is there number of love sonnets in Astrophil and Stella, the first English sonnet sequence by Sir Philip Sidney.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
