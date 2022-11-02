@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1600000 is the number of people employed by the Indian railway system in India.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
