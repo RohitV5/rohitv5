@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
