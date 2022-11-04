@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the record number of points scored in one NBA game by a single player, set by Wilt Chamberlain of the Philadelphia Warriors on March 2, 1962 I.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
