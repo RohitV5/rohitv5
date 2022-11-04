@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
