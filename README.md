@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5000 is the number of base pairs in the DNA of the simplest viruses.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
