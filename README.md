@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the number of miles that Thomas Sopwith, an English aviation pioneer flew in 3 hours, 40 minutes on December 18, 1910.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
