@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+150 is the number of estimated distinct phonemes in the Taa language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
