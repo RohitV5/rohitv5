@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-84 is the code for international direct dial phone calls to Vietnam.
+88 is the number of constellations in the sky as defined by the International Astronomical Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
