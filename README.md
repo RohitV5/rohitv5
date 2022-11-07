@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
