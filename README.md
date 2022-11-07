@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-650000000 is the number of years that jellyfish have been on Earth, existing before sharks and dinosaurs.
+184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
