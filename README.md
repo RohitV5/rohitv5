@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is the atomic number of an element temporarily called Unoctseptium.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
