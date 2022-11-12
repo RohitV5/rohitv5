@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
