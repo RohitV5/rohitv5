@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-210 is the world speed record (km/h) for a mountain bike on a ski slope.
+110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
