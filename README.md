@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
+199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
