@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-850 is the maximum possible Fair Isaac credit score.
+195 is the rank of BNY Mellon Center in terms of the tallest skyscraper in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
