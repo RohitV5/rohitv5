@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-163 is the atomic number of an element temporarily called Unhextrium.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
