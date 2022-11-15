@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-450 is a perfect score in Canadian five-pin bowling.
+166 is luxembourg ranks #166 in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
