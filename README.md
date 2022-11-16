@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the minimum age of candidates for election to the United States House of Representatives.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
