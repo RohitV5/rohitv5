@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the ideal temperature (F) for developing black-and-white film.
+200 is degrees in a human"s field of vision (approximately).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
