@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the approximate speed in miles per hour a penguin swims at.
+93 is the atomic number of neptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
