@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the margin in St Kilda's win over the Brisbane Lions in the last round of the 2005 season in the Australian Football League.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
