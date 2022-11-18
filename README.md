@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
