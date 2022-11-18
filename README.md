@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the SMTP code meaning "service ready".
+212 is the boiling point of water at sea level in Fahrenheit degrees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
