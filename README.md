@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the number of symbolic foods placed on the Passover Seder Plate.
+243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
