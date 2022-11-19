@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3825000 is the number of entries on Wikipedia in the English language.
+12 is the number of ounces in a troy pound (used for precious metals).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
