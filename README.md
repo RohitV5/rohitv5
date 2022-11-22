@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is years Harriet (1830–2006) the Galápagos tortoise lived.
+101 is is the atomic number of mendelevium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
