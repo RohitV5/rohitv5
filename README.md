@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4e+185 is the number of planck volumes in the observable universe.
+11 is the number of players in a field hockey team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
