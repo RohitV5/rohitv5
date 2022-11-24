@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the height in feet that stalks of sugar cane can reach up to.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
