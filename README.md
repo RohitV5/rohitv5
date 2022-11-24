@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of chambers the mammalian heart consists of.
+10 is the number of Provinces in Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
