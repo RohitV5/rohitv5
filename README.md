@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
+5 is the number of completed, numbered piano concertos of Ludwig van Beethoven, Sergei Prokofiev, and Camille Saint-Saëns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
