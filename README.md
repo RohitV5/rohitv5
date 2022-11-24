@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
+7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
