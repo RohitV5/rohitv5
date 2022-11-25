@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61000 is the average number of people airborne over the US at any given hour.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
