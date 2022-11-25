@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the atomic number of an element called Ununseptunium.
+649 is the number of Pokémon as of Pokémon Black and White versions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
