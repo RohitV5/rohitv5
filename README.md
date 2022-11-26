@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
+95 is the NBA record for Most Assists in a 7-game playoff series (by Magic Johnson of the Los Angeles Lakers in 1984).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
