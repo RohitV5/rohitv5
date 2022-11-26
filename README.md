@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number corresponding to the last second in a given minute.
+3500000000000 is the estimated population of fish in the ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
