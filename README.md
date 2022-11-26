@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+198 is the number of episodes that Woody Harrelson appeared as Woody Boyd in Cheers (of 273 episodes) between 1985-1993.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
