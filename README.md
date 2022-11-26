@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the highest test score of Australian cricket captain Michael Clarke.
+182 is the atomic number of an element temporarily called Unoctbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
