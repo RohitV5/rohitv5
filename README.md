@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the California Penal Code for "Offer bribe to influence testimony".
+114 is the number of chapter in the Quran, the holy book of Islam contains 114.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
