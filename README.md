@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4294967296 is the number of bytes in 4 gibibytes.
+110 is the number of stories of both towers of the former World Trade Center in New York.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
