@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000 is the number of times the original Pac Man has been played as estimated by Namco, the manufacturers of Pac Man.
+195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
