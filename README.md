@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
