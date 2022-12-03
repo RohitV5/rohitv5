@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
+12 is the number of months in a year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
