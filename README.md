@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the number of plays William Shakespeare is thought to have written (counting Henry IV as three parts).
+11 is the number of pounds one gallon of pure maple syrup weighs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
