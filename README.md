@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+7 is the number of seconds it takes "Superman: Escape from Krypton" roller coaster to go from 0 to 100 miles per hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
