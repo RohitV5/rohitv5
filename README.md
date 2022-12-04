@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-714 is the number of home runs Babe Ruth scored in his career.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
