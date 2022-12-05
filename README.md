@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+122 is the atomic number of the chemical element unbibium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
