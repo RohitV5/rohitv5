@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of cups of milk needed to make one pound of butter.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
