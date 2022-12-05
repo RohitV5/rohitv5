@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is sMTP status code for service closing transmission channel.
+50 is the number of states in the United States of America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
