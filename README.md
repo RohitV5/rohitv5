@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
+199 is the number of hits by Ron Davis in his MLB career from 1962-1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
