@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
