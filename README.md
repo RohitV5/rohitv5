@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
