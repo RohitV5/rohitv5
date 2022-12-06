@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the number of white keys (notes in the C major scale).
+60 is a common speed limit (mph) for freeways in many US states.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
