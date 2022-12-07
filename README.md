@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
