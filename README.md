@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
