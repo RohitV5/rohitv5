@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the rank of Liberia in world population.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
