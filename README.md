@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
