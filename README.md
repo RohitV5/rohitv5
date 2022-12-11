@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
