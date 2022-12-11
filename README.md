@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+8000 is the approximate number of mirror squares the biggest disco ball in the world had in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
