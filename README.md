@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
+17 is the number of the raka'ahs that Muslims perform during Salah on a daily basis.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
