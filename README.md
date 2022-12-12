@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the number of episodes of the TV series Martin that ran on Fox from 1992 to 1997.
+433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
