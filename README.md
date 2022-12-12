@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+240 is the common voltage in England and Australia before conversion to 230V standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
