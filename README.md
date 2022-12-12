@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2055001 is the number of people employed by Wal-mart in 2007.
+137 is the average brain mass of a baboon in grams.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
