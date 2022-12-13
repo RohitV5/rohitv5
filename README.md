@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
