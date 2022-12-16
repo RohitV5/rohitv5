@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
+30 is the number of years that tarantulas can live up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
