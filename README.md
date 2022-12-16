@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
