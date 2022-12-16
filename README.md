@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
