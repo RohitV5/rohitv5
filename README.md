@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the atomic number of europium.
+126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
