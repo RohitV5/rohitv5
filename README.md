@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-164 is the number of episodes that the TV show Mad About You ran on NBC from 1992 to 1999.
+21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
