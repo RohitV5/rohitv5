@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the number of seconds in a minute.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
