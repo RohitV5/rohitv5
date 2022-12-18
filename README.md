@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+198 is the number of episodes that Woody Harrelson appeared as Woody Boyd in Cheers (of 273 episodes) between 1985-1993.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
