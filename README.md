@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
