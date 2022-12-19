@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-209 is the basketball record for most three pointers in a row.
+101 is the HTTP status code indicating that a client should switch protocols.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
