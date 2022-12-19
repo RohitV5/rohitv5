@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
