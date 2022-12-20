@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the country code for Mauritius.
+190 is the medical emergency number in Ghana.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
