@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+198 is the population of Wormshill, Kent, England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
