@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of hits by Ron Davis in his MLB career from 1962-1969.
+755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
