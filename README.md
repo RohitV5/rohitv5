@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106000000000 is the number of homo sapiens that have lived since speciation.
+124 is the atomic number of the yet-to-be-discovered element unbiquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
