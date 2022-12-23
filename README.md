@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
+214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
