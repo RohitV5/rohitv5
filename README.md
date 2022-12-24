@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
