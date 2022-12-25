@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is the number of episodes for the different regions in the PokÃ©mon anime.
+196 is the length in miles of the Adda River in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
