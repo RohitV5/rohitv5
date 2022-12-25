@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
