@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+21 is the number of points required to win a game in badminton and table tennis (before 2001).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
