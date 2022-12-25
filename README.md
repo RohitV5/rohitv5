@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149000000 is the number of kilometres from the Earth the sun is.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
