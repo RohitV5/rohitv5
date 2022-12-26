@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1300 is the number of babies born prematurely in the USA every day.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
