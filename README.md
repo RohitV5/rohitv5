@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172000 is tons of chocolate produced in Belgium in a year.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
