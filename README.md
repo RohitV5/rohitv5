@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of pounds one gallon of pure maple syrup weighs.
+383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
