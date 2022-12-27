@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+189 is the rank of Stayin' Alive (1977) by the Bee Gees on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
