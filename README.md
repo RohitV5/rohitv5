@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the minimum age at which one can work in many U.S states.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
