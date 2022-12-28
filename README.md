@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
