@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+91 is the code for international direct dial phone calls to India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
