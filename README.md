@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-207 is the area code for the US state of Maine.
+22 is the typical length in minutes of a half hour sitcom not including commercials.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
