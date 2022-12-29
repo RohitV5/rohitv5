@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is the number of member states of the United Nations as of 2011.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
