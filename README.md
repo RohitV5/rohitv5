@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
