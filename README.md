@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the minimum distance in yards for a Par 3 on a golf course.
+192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
