@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
+31 is the number of days in the months January, March, May, July, August, October and December.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
