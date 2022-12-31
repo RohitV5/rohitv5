@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
+42 is the sum of the codes of the letters in the words "BIG BANG" using the encoding A=1, B=2, C=3, etc.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
