@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the highest test score of Australian cricket captain Michael Clarke.
+50 is the height in kilometres that a volcano can shoot ash into the sky.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
