@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is a common flight number for flights involved in crashes.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
