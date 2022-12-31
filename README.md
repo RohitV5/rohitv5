@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the approximate number of weeks in a year.
+11 is the approximate periodicity of a sunspot cycle in years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
