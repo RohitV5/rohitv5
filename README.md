@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of minutes the average US worker toils each working day just to pay income tax.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
