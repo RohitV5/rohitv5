@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
