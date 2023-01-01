@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
