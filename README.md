@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
