@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is the number of degrees in two circles (= 2 × 360).
+998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
