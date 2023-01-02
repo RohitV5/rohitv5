@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-432 is three-dozen sets of a dozen, making it three gross.
+102 is the number of floors in Empire State Building in New York City.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
