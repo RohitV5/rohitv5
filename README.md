@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the length of an NBA court in feet.
+195 is the rank of Waco, Texas by largest city population in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
