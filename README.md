@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+190 is the population of Arguisuelas, Castile-La Mancha, Spain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
