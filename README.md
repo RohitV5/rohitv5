@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+3 is the number of consecutive successful attempts in a hat trick in sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
