@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
