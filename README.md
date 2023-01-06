@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-229 is the lowest individual batting score not achieved by any player in test match cricket.
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
