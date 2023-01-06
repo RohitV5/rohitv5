@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-95 is the atomic number of americium.
+91 is the atomic number of protactinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
