@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
