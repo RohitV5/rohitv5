@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
+5 is the number of interlocked rings in the symbol of the Olympic Games, representing the number of inhabited continents represented by the Olympians (counting North America and South America as one continent).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
