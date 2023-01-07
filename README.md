@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
+695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
