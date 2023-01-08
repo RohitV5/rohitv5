@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-930000 is the number of words in the King James Version of the Bible.
+187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
