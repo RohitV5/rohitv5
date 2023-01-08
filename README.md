@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the number of episodes of Chickenman series which began in 1966.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
