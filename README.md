@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+10 is the number of kingdoms in Five Dynasties and Ten Kingdoms Period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
