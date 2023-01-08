@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+195 is the number of episodes of Chickenman series which began in 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
