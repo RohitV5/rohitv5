@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of athletes from Belarus competed in 28 events at the 2008 Olympics in Beijing.
+206 is the number of bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
