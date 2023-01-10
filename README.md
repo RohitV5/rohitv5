@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
