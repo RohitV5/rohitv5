@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
+36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
