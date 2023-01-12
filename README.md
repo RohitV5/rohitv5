@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+21 is the number of grains of sand on all the world's beaches put together.
+114 is the number of chapter in the Quran, the holy book of Islam contains 114.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
