@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
+116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
