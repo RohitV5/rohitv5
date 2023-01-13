@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the highest number on one end of a standard domino.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
