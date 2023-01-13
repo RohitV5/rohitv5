@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000000000 is the number of base pairs in the human genome.
+50 is the gold or "golden" wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
