@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+564000 is the number of words in War and Peace by Leo Tolstoy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
