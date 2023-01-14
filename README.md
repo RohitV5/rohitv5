@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the atomic number of hahnium, also known as dubnium.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
