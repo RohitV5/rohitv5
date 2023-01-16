@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-255 is the largest values that can be assigned to elements in the 24-bit RGB color model, since each color channel is allotted eight bits.
+56 is the number of officially recognized ethnic groups in the list of ethnic groups in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
