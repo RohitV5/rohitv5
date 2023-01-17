@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
