@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
