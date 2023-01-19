@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+13 is the number of steps in the gallows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
