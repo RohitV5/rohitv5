@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
