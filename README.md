@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of unlabeled topologies with 5 elements.
+38 is the number of surviving plays written by William Shakespeare.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
