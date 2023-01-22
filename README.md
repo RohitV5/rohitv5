@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+160 is the number of characters permitted in a standard short message service in Australia and Europe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
