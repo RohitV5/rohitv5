@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+240 is the cholesterol level above which is considered high risk.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
