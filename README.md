@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a number believed to be a magic number in nuclear physics.
+110 is a card game related to Forty-five (card game).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
