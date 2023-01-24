@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of points that a Premier League team needs to avoid relegation in soccer.
+111 is the atomic number of the element roentgenium (Rg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
