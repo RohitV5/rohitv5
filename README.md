@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the rank of Rocks (1976) by Aerosmith on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
