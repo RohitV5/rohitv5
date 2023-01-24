@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
