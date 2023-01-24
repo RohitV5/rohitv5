@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the number of square inches in a square foot.
+11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
