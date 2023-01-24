@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
