@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the percentage of all scald burns to children from hot tap water.
+214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
