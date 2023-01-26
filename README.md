@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-74 is the atomic number of tungsten.
+5 is times Muslims pray to Allah a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
