@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the number of years of marriage until the platinum wedding anniversary.
+101 is is the atomic number of mendelevium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
