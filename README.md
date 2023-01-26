@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of circles of Hell in Dante's Divine Comedy.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
