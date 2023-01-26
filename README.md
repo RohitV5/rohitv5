@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+64 is number of golden disks in the myth of the Tower of Hanoi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
