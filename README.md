@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of years of marriage as the ruby wedding anniversary.
+195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
