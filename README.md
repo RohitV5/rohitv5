@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
