@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
+55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
