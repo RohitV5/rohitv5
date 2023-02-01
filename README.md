@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
+55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
