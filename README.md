@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the emergency telephone number in Colombia.
+118 is the medical and Alpine rescue emergency telephone number in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
