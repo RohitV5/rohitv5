@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
+134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
