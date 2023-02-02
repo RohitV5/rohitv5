@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the number of candles in a box of Hanukkah candles.
+1979 is a song by American alternative rock band The Smashing Pumpkins.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
