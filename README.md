@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-600 is the maximum credit score considered poor, thus limiting available credit in the USA.
+125000 is the number of average strands of hair in the human head.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
