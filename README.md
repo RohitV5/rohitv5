@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number of days in the average human menstrual cycle.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
