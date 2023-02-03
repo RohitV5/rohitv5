@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the Calling code for Zaire.
+131 is the number serving a monkiker for Indie music.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
