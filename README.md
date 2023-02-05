@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+164 is the number of home runs the Baltimore Orioles hit in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
