@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
