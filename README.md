@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Faroe Islands (Denmark) in world population density.
+6 is the number of symbolic foods placed on the Passover Seder Plate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
