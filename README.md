@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
