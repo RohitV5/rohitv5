@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of times Julius Caesar was stabbed.
+26 is the number of spacetime dimensions in bosonic string theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
