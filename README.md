@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4000 is the weight in pounds that the Great White Shark can grow to.
+199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
