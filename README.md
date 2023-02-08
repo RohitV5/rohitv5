@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-218 is votes required in the US House of Representatives to achieve a majority as of 2008.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
