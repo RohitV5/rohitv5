@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000000000000 is the estimated insect population.
+3000 is the number of gowns Queen Elizabeth I of England owned when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
