@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+41 is the number of soldiers in The Expendables (2010 film) tactor Eric Roberts laments to his subordinates about having been killed by star Sylvester Stallone in his escape from their island.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
