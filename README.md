@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
