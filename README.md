@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
