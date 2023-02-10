@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1600000 is the number of people employed by the Indian railway system in India.
+3 is the number of points received for a successful field goal in both American football and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
