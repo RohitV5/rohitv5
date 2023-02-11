@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
