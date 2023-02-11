@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
+60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
