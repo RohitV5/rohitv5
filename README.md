@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
+198 is the population of Perlethorpe, Nottinghamshire England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
