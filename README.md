@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
