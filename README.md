@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
+77 is the atomic number of iridium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
