@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+13 is the number of unique ranks in a suit in a pack of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
