@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number on a button commonly worn by feminist activists in the 1970s (based on the claim that a woman earned 59 cents to an equally qualified man's dollar).
+132 is the number of runs Pakistan was shot out o hand over the World cup trophy to a strong australian team in the Cricket World Cup 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
