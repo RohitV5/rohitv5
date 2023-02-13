@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
