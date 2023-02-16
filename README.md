@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
