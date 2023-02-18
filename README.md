@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is the number of episodes for the different regions in the PokÃ©mon anime.
+133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
