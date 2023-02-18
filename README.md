@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-215 is the Dewey Decimal Classification for Science and religion.
+42 is the number of kilometers in a marathon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
