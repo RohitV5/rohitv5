@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the age a person must attain in order to be considered a supercentenarian.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
