@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+40 is the number of years of marriage as the ruby wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
