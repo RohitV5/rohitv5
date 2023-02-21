@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+8 is the number of planets in the Solar System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
