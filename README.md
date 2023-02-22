@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the position that Tom Brady was picked in the 2000 NFL draft.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
