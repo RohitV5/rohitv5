@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-102 is the number of floors in Empire State Building in New York City.
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
