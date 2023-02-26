@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
