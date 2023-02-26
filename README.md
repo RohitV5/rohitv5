@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-800000000 is the number of active users on Facebook as of December 2011.
+196 is the length in miles of the New Orleans and Northeastern Railroad.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
