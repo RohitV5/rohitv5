@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+666 is the number of the devil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
