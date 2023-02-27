@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+98 is the temperature (F) of the normal body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
