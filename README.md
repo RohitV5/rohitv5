@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30000 is the number of distinct Chinese characters.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
