@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the maximum number of times a letter-sized paper can be folded in half.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
