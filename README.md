@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
+11 is the number of pounds one gallon of pure maple syrup weighs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
