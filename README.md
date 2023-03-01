@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
+168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
