@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
