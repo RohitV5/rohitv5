@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of squares on a shogi playing board.
+27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
