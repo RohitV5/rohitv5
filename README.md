@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
+97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
