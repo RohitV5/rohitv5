@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
