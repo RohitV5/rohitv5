@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-115 is the atomic number of an element temporarily called ununpentium.
+212 is the boiling point of water at sea level in Fahrenheit degrees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
