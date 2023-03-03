@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is the atomic number of an element temporarily called Unoctseptium.
+127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
