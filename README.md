@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+124 is the atomic number of the yet-to-be-discovered element unbiquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
