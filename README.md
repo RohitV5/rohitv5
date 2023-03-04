@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the maximum number of Knight Companions in the Order of the Garter.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
