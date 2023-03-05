@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the average number of heartbeats per minute for a resting adult.
+122 is the traffic emergency telephone number in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
