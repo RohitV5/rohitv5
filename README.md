@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the approximate periodicity of a sunspot cycle in years.
+206 is bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
