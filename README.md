@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the death toll of the 1995 Oklahoma City bombing.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
