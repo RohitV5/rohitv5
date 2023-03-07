@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-441 is the number of squares on a Super Scrabble board.
+72 is the number of names of God, according to Kabbalah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
