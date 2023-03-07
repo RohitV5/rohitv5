@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
