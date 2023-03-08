@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
+181 is the number of passengers aboard TAM Airlines Flight 3054 which crashed upon landing in SÃ£o Paulo on July 17, 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
