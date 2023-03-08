@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
