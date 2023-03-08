@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
