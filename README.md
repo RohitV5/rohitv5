@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
+13 is the Youngest age a minor can rent or purchase a T rated game by the ESRB without parental (age 18 or older) consent.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
