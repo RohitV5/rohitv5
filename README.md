@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
+800000000 is the number of active users on Facebook as of December 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
