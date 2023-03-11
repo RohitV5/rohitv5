@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the rank of Hey Joe (1966) by Jimi Hendrix on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
