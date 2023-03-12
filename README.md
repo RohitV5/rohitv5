@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
+110 is a card game related to Forty-five (card game).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
