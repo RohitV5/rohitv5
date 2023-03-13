@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the number of universes in multiverse theory.
+168 is the highest test score of Australian cricket captain Michael Clarke.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
