@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of appendages on most starfish, which exhibit pentamerism.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
