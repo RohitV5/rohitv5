@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3825000 is the number of entries on Wikipedia in the English language.
+11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
