@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the minimum age at which one can work in many U.S states.
+500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
