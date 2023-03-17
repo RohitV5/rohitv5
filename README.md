@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43687 is the number of toilet related accidents in the United States in 1996.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
