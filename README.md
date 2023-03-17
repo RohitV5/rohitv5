@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+61000 is the average number of people airborne over the US at any given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
