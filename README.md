@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
