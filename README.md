@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000 is the number of other neurons each neuron is connected to in the human brain.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
