@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is miles that the Thames River flows through Ontario, Canada.
+53 is the number of bytes in an Asynchronous Transfer Mode packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
