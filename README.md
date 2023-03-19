@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+168 is the number of hours in a week, or 7 x 24 hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
