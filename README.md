@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
+139 is the number of episodes of the TV series 3rd Rock from the Sun that ran on NBC from 1996 to 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
