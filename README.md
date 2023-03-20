@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the rank of Mauritania in terms of world population.
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
