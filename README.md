@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
