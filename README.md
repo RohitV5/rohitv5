@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
+50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
