@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
