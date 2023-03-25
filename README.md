@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the total number of books in the Holy Bible in the Catholic version.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
