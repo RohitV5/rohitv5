@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of pressure points in the human body according to Marma Adi and Ayurveda, where consciousness and flesh intersect to give life to the living being.
+101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
