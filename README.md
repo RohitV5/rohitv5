@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-666 is the number of the devil.
+150 is the number of degrees in the quincunx astrological aspect explored by Johannes Kepler.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
