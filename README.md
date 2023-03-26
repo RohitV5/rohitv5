@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
