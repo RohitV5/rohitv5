@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000 is the weight in tons of the average iceberg.
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
