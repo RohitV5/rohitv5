@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+198 is the atomic number of an element temporarily called Unennoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
