@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67890 is the number of largest decimal places of π that have been recited from memory.
+276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
