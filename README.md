@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+168 is the feet that three-time Olympic gold medalist John Flanagan achieved in the hammer throw in 1904 (168 feet, 1 inch).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
