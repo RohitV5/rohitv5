@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+10 is the Number of dots in a tetractys.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
