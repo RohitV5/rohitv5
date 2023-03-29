@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
