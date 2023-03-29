@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the Number of dots in a tetractys.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
