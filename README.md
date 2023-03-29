@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age for getting an adult job in most states and provinces across the globe.
+72 is the life duration of the ovule in hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
