@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
