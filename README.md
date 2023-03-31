@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
+41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
