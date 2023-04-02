@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
