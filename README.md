@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the Calling code for Zaire.
+64 is the number of demons in the Dictionnaire Infernal.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
