@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
+178 is the rank of Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
