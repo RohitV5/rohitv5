@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of 181 colleges, universities and other higher education institutions in Texas.
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
