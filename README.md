@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
+168 is the number of episodes that the The Mary Tyler Moore Show ran on CBS from 1970 to 1977.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
