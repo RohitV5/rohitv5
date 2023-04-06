@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the number of Scud missiles which Iraq fired at Israel during the Gulf War in 1991.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
