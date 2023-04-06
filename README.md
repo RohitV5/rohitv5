@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is years it takes for all the water in Lake Superior to be changed.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
