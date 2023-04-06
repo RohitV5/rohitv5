@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the length in miles of the The Coast to Coast Walk in England.
+7e+27 is the number of atoms in the average human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
