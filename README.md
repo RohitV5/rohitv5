@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+121 is the atomic number of the undiscovered chemical element Unbiunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
