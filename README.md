@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the minimum number of varieties of watermelons grown in the U.S.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
