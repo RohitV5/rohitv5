@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the number of seconds in a minute.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
