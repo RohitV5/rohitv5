@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
