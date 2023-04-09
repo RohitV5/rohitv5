@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267000 is the number of words in James Joyce's Ulysses.
+161 is the number of different ways to bet on a roulette wheel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
