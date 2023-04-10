@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+144 is the number of square inches in a square foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
