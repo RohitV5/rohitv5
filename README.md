@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
