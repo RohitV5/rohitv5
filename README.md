@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the number of episodes of the TV series Good Times ran on CBS from 1974 to 1979.
+56 is the number of men who signed the United States Declaration of Independence in 1776.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
