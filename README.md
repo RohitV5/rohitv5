@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
+600 is the maximum credit score considered poor, thus limiting available credit in the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
