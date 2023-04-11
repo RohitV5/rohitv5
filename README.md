@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+199 is the number of episodes of Coach in which actress Shelley Fabares appeared in 199 (of 200 total) episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
