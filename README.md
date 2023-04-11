@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
