@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+11 is the number of pounds one gallon of pure maple syrup weighs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
