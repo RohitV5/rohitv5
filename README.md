@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of prayers said in the Rosary in each night.
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
