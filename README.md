@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
+199 is the position that Tom Brady was picked in the 2000 NFL draft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
