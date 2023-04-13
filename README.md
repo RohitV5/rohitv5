@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
