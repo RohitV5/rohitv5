@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
