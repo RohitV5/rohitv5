@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is distinct solutions of the Soma cube puzzle.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
