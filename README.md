@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the number of pounds in a stone in traditional British units of weight.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
