@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the Intel 8086 instruction for no operation (NOP).
+72 is the standard resolution of an Apple Macintosh screen in dots per inch.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
