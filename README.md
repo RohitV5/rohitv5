@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
