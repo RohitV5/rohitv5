@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the number of personality types in the Myers-Briggs classification system.
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
