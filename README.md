@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
