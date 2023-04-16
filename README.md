@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number worn by the Clemson Tigers' record breaking running back C.J.
+16 is the minimum age for getting an adult job in most states and provinces across the globe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
