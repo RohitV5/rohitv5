@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the number of players on the field in a football (soccer) match.
+117 is the atomic number of a recently discovered element temporarily called ununseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
