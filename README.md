@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-207 is the area code for the US state of Maine.
+172 is the rank of Iceland in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
