@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the rank of Madagascar 176 world population density.
+68 is the ideal temperature (F) for developing black-and-white film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
