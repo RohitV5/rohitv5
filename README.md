@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the atomic number of the yet-to-be-discovered element unbiquadium.
+5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
