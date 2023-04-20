@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000 is the number of gowns Queen Elizabeth I of England owned when she died.
+30 is the height in feet that stalks of sugar cane can reach up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
