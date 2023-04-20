@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the number of polynucleotide strands in a DNA double helix.
+125 is the atomic number of the yet-to-be-discovered element Unbipentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
