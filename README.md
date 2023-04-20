@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-248 is the number of organs in the human body as traditionally depicted.
+166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
