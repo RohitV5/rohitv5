@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the number of surat al-Falaq in the Qur'an.
+195 is the rank of BNY Mellon Center in terms of the tallest skyscraper in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
