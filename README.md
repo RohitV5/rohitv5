@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
