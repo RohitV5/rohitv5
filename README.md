@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
+194 is the rank of Isle of Man in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
