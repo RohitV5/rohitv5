@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the atomic number of the chemical element unbibium.
+99 is the number of names of Allah, the names or attributes of God in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
