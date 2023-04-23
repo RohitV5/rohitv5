@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the number of demands laid out by chess master Bobby Fischer laid for the World Chess Federation prior to a 1975 match against Anatoly Karpov.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
