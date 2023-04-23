@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
+192 is the number of lasers in the National Ignition Facility (NIF) at Lawrence Livermore National Laboratory in Livermore, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
