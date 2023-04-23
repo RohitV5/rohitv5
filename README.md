@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-464 is the number of legal positions of the kings in chess, not counting mirrored positions.
+11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
