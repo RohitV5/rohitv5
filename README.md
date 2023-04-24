@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of circles of Hell in Dante's Divine Comedy.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
