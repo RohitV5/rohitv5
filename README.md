@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35000 is the number of genes in a human being.
+195 is the number of countries in the world if Taiwan is included.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
