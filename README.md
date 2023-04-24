@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the rank of Highway to Hell (1979) by AC/DC on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
