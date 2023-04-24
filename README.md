@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the highest obtainable level on World of Warcraft (not including expansions).
+122 is the age of Jeanne Calment when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
