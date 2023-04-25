@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the length (years) of the Eighty Years' War (1568–1648).
+300 is the number of different beverages the Coca Cola company offers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
