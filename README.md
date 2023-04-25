@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the Youngest age a minor can rent or purchase a T rated game by the ESRB without parental (age 18 or older) consent.
+245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
