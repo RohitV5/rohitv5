@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
+173 is the Exit status indicated by Mac App Store software when receipt validation fails.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
