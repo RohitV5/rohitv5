@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+240 is the common voltage in England and Australia before conversion to 230V standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
