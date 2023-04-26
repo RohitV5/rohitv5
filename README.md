@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the number of runs in cricket that's a milestone for a batsman.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
