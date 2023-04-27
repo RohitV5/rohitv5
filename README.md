@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of points received for a successful field goal in both American football and Canadian football.
+177 is the rank of the United States in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
