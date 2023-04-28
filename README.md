@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
+1000 is the number of words a picture is worth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
