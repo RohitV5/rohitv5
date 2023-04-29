@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the number of hydrogen atoms in butane, a hydrocarbon.
+173 is the rank of Faroe Islands (Denmark) in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
