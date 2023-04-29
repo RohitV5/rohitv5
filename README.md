@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+267000 is the number of words in James Joyce's Ulysses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
