@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
