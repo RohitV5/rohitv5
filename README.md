@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+117 is the serial number of protagonist John from the Halo Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
