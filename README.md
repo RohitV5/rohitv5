@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-390 is the speed in feet per second that nerve impulses for muscle position travel at.
+64 is the maximum number of strokes in any Chinese character.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
