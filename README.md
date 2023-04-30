@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the answer to the Ultimate Question of Life, the Universe, and Everything.
+13 is the number of steps in the gallows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
