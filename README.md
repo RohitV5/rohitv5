@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is liters of water needed to produce 1 cup of coffee.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
