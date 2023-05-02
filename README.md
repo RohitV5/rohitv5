@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6800 is the approximate number of languages in the world.
+216 is the number of stitches on a baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
