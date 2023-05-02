@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+4 is the number of strings on a violin, a viola, a cello, double bass, a cuatro and a ukulele, and the number of string pairs on a mandolin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
