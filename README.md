@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
