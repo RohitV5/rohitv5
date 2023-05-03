@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the police non-emergency number in Denmark.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
