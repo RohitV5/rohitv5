@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+83 is the number of fundamental particles in the observable universe.
+27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
