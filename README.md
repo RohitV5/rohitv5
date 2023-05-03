@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
