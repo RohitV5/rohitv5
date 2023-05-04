@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is largest integer for which Google"s built-in calculator function can compute the factorial.
+56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
