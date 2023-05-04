@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+83 is the atomic number of bismuth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
