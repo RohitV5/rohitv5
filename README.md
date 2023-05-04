@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
+169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
