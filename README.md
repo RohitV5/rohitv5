@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
