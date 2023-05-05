@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+192 is the length in miles of the The Coast to Coast Walk in England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
