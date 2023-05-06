@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+28 is the number of letters in the Danish and Swedish alphabets (not counting W), and also in the Arabic and Esperanto alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
