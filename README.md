@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the California Penal Code for "Offer bribe to influence testimony".
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
