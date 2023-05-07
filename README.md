@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the consumption in pounds of candy annually per person in Denmark, the country with the highest candy consumption.
+26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
