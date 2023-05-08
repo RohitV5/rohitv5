@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
