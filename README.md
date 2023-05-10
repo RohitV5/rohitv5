@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
+123 is the Notation for national and international telephone numbers Recommendation ITU-T Recommendation E.123 defines a standard way to write telephone numbers, e-mail addresses, and web addresses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
