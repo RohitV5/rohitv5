@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
+240 is distinct solutions of the Soma cube puzzle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
