@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267000 is the number of words in James Joyce's Ulysses.
+72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
