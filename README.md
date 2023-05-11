@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
