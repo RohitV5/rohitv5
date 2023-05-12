@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
+80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
