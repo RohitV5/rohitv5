@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the percentage of girls in Bangladesh that are married by age 18.
+31 is the number of days in the months January, March, May, July, August, October and December.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
