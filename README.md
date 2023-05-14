@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of characters in a canonical four-character idiom in Chinese.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
