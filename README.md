@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000000000 is the number of base pairs in the human genome.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
