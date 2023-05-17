@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the weight in grams of a flying disc used in Ultimate.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
