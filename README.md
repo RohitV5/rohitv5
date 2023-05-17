@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
