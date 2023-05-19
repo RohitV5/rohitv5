@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+97 is the number of different characters that can be used with a standard English Keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
