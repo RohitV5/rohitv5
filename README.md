@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the atomic number of an element temporarily called Unhexseptium.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
