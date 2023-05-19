@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
+117 is the serial number of protagonist John from the Halo Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
