@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
