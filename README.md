@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the holy number of Discordianism, as dictated by the Law of Fives.
+15 is the number of minutes carbon monoxide can kill a person in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
