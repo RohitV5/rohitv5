@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
