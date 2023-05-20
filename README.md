@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of seconds it takes "Superman: Escape from Krypton" roller coaster to go from 0 to 100 miles per hour.
+36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
