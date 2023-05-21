@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of minutes carbon monoxide can kill a person in.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
