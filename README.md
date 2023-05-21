@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-587 is the outgoing port for email message submission.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
