@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
