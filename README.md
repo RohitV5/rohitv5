@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
