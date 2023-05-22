@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
