@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2500 is the number of letters on a typical typed page of text.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
