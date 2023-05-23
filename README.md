@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-69 is the atomic number of thulium, a lanthanide.
+50000000000000000 is the total population in Isaac Asimov's Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
