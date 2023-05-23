@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-158 is the number of episdoes the TV series The Dick Van Dyke Show ran on CBS from 1961 to 1966 with 158 episodes.
+176 is the number of verses in the longest chapter in the Bible, Psalm 119.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
