@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
+60 is the total number of years in a Sexagenary cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
