@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
+56 is the number of officially recognized ethnic groups in the list of ethnic groups in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
