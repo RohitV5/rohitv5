@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
+21 is the number of points required to win a game in badminton and table tennis (before 2001).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
