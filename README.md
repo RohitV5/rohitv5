@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+196 is the rank of Sweet Child o' Mine (1987) by Guns N' Roses on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
