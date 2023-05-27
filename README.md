@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the rank of Sweet Child o' Mine (1987) by Guns N' Roses on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+155 is the maximum possible score in a single break in snooker, with a free ball at the start of the break (147 is the highest possible without a free ball).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
