@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
