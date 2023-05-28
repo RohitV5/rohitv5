@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
+28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
