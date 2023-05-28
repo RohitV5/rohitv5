@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
+113 is a number considred unlucky in enduro, given to a race entrant and is colloquially known as a "blind pew".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
