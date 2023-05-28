@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
+138 is the number of touchdowns football quarterback Donnie Davis had for the Georgia Force of the Arena Football League.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
