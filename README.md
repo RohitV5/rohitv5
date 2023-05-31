@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the atomic number of darmstadtium.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
