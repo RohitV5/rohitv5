@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
+164 is the number of episodes that the TV show Mad About You ran on NBC from 1992 to 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
