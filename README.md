@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of parts in the Boeing 747-400.
+194 is the rank of Equatorial Guinea in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
