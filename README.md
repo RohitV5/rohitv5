@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-463 is the number of days in the synodic period of Ceres.
+165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
