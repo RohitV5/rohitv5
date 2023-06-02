@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the minimum number of varieties of watermelons grown in the U.S.
+59 is the number corresponding to the last minute in a given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
