@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
