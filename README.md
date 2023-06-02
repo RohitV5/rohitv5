@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
