@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the Youngest age a minor can rent or purchase a T rated game by the ESRB without parental (age 18 or older) consent.
+198 is the number of films that actor Harvey Clark appeared in between 1915 and 1938.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
