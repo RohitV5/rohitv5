@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the number of polynucleotide strands in a DNA double helix.
+196 is the rank of American Samoa in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
