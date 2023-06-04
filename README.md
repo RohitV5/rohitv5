@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+50000000 is the approximate number of people who fish per year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
