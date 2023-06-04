@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+198 is the rank of Best of Little Walter (1964) by Little Walter on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
