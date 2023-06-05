@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
