@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-336 is the number of dimples on an American golf ball.
+122 is the age of Jeanne Calment when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
