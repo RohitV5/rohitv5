@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the atomic number of hahnium, also known as dubnium.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
