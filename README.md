@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
