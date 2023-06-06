@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the atomic number of the yet-to-be-discovered element unbiquadium.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
