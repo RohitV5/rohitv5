@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
+720 is the number of degrees in two circles (= 2 × 360).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
