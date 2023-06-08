@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the code for international direct dial phone calls to India.
+107 is a common police code denoting a suspicious person.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
