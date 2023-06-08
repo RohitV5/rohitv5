@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the atomic number of unbioctium, an element yet to be discovered.
+199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
