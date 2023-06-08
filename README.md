@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+6 is the number of strings on a standard guitar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
