@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the traditional number of years in a jubilee period.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
