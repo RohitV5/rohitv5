@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
+22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
