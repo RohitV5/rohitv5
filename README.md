@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is a standard length of playing cards in mm.
+493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
