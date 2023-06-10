@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+21 is the number of grains of sand on all the world's beaches put together.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
