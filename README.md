@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
