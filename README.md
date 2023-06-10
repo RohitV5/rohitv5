@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+139 is the careers home runs given up by MLB pitcher Brian Meadows from 1998 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
