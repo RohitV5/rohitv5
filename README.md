@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the height in inches of a regulation basketball hoop.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
