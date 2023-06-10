@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is sMTP status code for service closing transmission channel.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
