@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
