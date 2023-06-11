@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the maximal number of horses in one row for carriage.
+53 is the maximum number of players on a National Football League roster.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
