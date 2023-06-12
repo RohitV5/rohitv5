@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
