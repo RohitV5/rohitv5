@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
