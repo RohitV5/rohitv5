@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
+16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
