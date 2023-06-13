@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the number of Scud missiles which Iraq fired at Israel during the Gulf War in 1991.
+172 is the rank of Djibouti in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
