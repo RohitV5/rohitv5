@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
