@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
