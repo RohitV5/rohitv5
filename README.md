@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+6 is the number of ponies in the main cast of My Little Pony: Friendship is Magic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
