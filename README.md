@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+181 is the wing area of a Boeing 757 airplane in meters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
