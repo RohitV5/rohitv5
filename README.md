@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the atomic number of seaborgium (Unilhexium Unh).
+161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
