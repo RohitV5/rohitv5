@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-209 is the basketball record for most three pointers in a row.
+3500000000000 is the estimated population of fish in the ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
