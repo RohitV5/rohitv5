@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the age for obtaining a driver's (or learner's) permit in certain jurisdictions, including some where the age for a driver's license is sixteen.
+55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
