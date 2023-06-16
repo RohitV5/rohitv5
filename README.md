@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
