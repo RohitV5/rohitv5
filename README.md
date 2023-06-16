@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000000000000 is the estimated insect population.
+69 is the number Bill and Ted were thinking of when talking to their future selves.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
