@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
