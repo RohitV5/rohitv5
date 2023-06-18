@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+168 is the number of hours in a week, or 7 x 24 hours.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
