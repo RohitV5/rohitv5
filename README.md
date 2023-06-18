@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
