@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
+5500000000000000 is the number of estimated ants on Earth alive at any one time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
