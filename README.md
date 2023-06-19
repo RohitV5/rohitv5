@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is a stable isotope of tellurium.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
