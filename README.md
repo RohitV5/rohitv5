@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-102 is the number of floors in Empire State Building in New York City.
+129 is the rank of Liberia in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
