@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the number of lines that make up Metatron's Cube.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
