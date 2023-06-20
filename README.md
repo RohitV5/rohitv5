@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number identifying number of several infantry units in various militaries across the world, such as the American and Israeli paratrooper brigades.
+38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
