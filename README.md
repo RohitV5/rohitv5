@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the minimum age for getting an adult job in most states and provinces across the globe.
+30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
