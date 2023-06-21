@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+43 is the maximum number of cars participating in a NASCAR race in the Cup Series or Nationwide Series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
