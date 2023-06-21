@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the electricity emergency telephone number in Indonesia.
+42 is the number of laws of cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
