@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is a number used to define the number of keys on a computer keyboard.
+208 is the heaviest stable isotope of any element (lead).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
