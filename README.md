@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+179 is the number of demands laid out by chess master Bobby Fischer laid for the World Chess Federation prior to a 1975 match against Anatoly Karpov.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
