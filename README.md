@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
+26 is the number of episodes in a television program each year (usually).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
