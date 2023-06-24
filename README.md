@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
