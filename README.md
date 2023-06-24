@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
+59 is the number corresponding to the last minute in a given hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
