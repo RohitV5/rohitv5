@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of innings in a regulation, non-tied game of baseball.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
