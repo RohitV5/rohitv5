@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
+50 is the height in kilometres that a volcano can shoot ash into the sky.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
