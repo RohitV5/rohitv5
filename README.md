@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
