@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+192 is the length in miles of the The Coast to Coast Walk in England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
