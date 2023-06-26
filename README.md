@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4e+185 is the number of planck volumes in the observable universe.
+199 is the number of goals scored by Randy Burridge in his NHL career between 1985-1998.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
