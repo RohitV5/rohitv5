@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
+111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
