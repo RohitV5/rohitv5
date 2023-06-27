@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
