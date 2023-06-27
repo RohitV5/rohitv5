@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
+120 is the drop in meters of the world's tallest freefall ride, The Giant Drop located in Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
