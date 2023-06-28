@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the rank of Rocks (1976) by Aerosmith on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
