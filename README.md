@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8 is the number of principles of Yong in Chinese calligraphy.
+175 is years Harriet (1830–2006) the Galápagos tortoise lived.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
