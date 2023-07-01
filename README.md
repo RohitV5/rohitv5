@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+132 is the Opus number of one of Beethoven's greatest works.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
