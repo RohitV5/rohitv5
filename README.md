@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the rank Grenada in world population.
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
