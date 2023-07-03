@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
