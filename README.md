@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
