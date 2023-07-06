@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-51 is the atomic number of antimony.
+7 is the maximum number of times a letter-sized paper can be folded in half.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
