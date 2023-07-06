@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the typical length in minutes of a half hour sitcom not including commercials.
+27 is the number of countries in the European Union (as of August 2011).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
