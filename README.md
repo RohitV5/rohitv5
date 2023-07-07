@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
