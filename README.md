@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of innings in a regulation, non-tied game of baseball.
+151 is total number of types of Pokémon in the original set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
