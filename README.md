@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+16777216 is the number of different colors that can be generated using the hex code system in HTML.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
