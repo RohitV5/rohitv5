@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-207 is the area code for the US state of Maine.
+7 is the number of periods, or horizontal rows of elements, in the periodic table.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
