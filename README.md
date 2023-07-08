@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+179 is the number of games played in the MLB with 162 games in the regular season and the potential 17 post-season games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
