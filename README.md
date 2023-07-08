@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the atomic number of an element not yet observed called Untriseptium.
+6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
