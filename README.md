@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the name of a community of and for open source developers, created by Red Hat.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
