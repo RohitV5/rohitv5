@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of episodes of the TV series I Dream of Jeannie that ran on NBC from 1965 to 1970.
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
