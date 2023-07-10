@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-18 is the number of chapters into which James Joyce's epic novel Ulysses is divided.
+23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
