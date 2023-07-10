@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+555 is the number of seats of the airliner A380-800.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
