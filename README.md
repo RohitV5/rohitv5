@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the medical emergency number in Ghana.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
