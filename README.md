@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+2 is the number of stars in a binary star system (a stellar system consisting of two stars orbiting around their center of mass).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
