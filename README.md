@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
