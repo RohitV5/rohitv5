@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the number also known as "eleventy", a term made famous by linguist and author J. R. R. Tolkien (Bilbo Baggins celebrates his eleventy-first birthday at the beginning of The Lord of the Rings) and derived from the Old English hund endleofantig.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
