@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
+222 is the score in the 1916 Cumberland vs. Georgia Tech football game that was the record for most points scored by one team in an American football game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
