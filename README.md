@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is a common flight number for flights involved in crashes.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
