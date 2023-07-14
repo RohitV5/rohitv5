@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the score in the 1916 Cumberland vs. Georgia Tech football game that was the record for most points scored by one team in an American football game.
+235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
