@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the minimum number of varieties of watermelons grown in the U.S.
+29 is the number of letters in the Turkish,Finnish, Swedish,Faroese,Danish and Norwegianalphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
