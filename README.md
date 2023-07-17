@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
