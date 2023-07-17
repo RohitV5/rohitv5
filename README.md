@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the number of episodes of the TV series Becker that ran on CBS from 1998 to 2004.
+11 is the approximate periodicity of a sunspot cycle in years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
