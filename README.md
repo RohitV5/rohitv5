@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+2 is the number of stars in a binary star system (a stellar system consisting of two stars orbiting around their center of mass).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
