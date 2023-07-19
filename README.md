@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2055001 is the number of people employed by Wal-mart in 2007.
+4 is the number of bits in a nibble, equivalent to half a byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
