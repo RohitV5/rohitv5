@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the distance in feet the Hampstead London Underground station is below ground level.
+600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
