@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the price in cents per acre the USA bought Alaska from Russia.
+153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
