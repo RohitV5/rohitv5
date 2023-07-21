@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
