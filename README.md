@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+88 is the approximate number of days it takes Mercury to complete its orbit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
