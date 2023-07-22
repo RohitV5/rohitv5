@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
