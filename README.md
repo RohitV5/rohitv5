@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
+334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
