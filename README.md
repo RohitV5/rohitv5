@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
+5 is the number of Korotkoff sounds when measuring blood pressure.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
