@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the maximal number of horses in one row for carriage.
+25000000 is the number of different inhabited planets in the the Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
