@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+179 is the number of games played in the MLB with 162 games in the regular season and the potential 17 post-season games.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
