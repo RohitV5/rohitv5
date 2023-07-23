@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
