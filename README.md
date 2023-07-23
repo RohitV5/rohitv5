@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
+190 is the length in minutes of the Right Stuff.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
