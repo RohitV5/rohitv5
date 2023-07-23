@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-666 is the number of the devil.
+72 is the total number of books in the Holy Bible in the Catholic version.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
