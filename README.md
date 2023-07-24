@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+555 is the number of seats of the airliner A380-800.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
