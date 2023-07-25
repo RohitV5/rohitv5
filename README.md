@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
