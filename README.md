@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is five gross (= 500 duodecimal, 5 × 144).
+490 is the number of Pokémon available as of the release of Pokémon Diamond and Pearl (excluding event Pokémon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
