@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the length in miles of The Wild West Relay team running relay race held annually in August in Colorado.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
