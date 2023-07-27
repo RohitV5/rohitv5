@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
