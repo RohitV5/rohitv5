@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the amount of money one has if one has one coin of each U.S. denomination less than a dollar (penny, nickel, dime, quarter, half dollar) in cents.
+17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
