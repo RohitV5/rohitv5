@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the area code assigned to Washington D.C.
+132 is the Opus number of one of Beethoven's greatest works.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
