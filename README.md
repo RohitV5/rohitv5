@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
