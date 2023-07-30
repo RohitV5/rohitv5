@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the number of yards in a chain.
+38 is the number of years it took the Israelites to travel from Kadesh Barnea to the Zered valley in Deuteronomy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
