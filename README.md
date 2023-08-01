@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000 is the number of morphine addicts the Civil War produced.
+177 is the rank of the United States in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
