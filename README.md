@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the age a person must attain in order to be considered a supercentenarian.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
