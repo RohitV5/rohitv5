@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
