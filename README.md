@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1096000000 is the population of India in 2007.
+60 is the total number of cards in the game Racko.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
