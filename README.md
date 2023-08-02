@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-463 is the number of days in the synodic period of Ceres.
+11 is the approximate periodicity of a sunspot cycle in years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
