@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the number of Death in the In the Final Destination series.
+172 is the record in miles per hour of John White's shot in squash.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
