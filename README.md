@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
+37 is the number of slots in European Roulette (numbered 0 through 36, the 00 is not used in European roulette as it is in American roulette).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
