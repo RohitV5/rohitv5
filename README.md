@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
