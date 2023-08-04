@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the traditional number of years in a jubilee period.
+151 is total number of types of Pokémon in the original set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
