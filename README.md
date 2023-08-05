@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the atomic number of berkelium.
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
