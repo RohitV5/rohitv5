@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the number of years that Gilgamesh reigned according to the Sumerian king list.
+304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
