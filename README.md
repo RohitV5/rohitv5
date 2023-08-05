@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+464 is the number of legal positions of the kings in chess, not counting mirrored positions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
