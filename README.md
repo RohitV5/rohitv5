@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360000 is the number of words definitions in the New Oxford Dictionary of English.
+195 is the number of episodes of The Ed Allen Show, which began in 1948.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
