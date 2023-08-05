@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
