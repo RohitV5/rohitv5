@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
