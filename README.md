@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the common voltage in the European Union.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
