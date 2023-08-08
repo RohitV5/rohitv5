@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+50 is the height in kilometres that a volcano can shoot ash into the sky.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
