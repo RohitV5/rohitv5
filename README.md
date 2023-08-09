@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the emergency telephone number in Colombia.
+30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
