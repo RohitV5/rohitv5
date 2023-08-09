@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the common voltage in the European Union.
+200 is the minimum number of varieties of watermelons grown in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
