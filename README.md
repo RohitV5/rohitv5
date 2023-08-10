@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of permanent members with veto power on the United Nations Security Council.
+72 is the record number of victories in an NBA season (1995-96 Chicago Bulls).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
