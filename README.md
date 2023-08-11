@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+120 is the telephone number "to report a car breakdown on the highway in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
