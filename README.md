@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-206 is the number of bones in the typical adult human body.
+166 is the number of minutes the average US worker toils each working day just to pay income tax.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
