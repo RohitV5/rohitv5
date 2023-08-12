@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
