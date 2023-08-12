@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is a police term for a murder or homicide.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
