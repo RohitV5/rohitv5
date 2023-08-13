@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5600 is the number of metres above sea level of the highest bridge in the world, located in the Himalayan mountains.
+1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
