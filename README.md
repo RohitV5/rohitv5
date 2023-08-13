@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-511 is the number of collaborators mathematician Paul Erdős had.
+180 is the standard number of days in the school year in most areas of the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
