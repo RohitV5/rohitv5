@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the atomic number of the undiscovered chemical element Unbiunium.
+40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
