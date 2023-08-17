@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4000 is the weight in pounds that the Great White Shark can grow to.
+165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
