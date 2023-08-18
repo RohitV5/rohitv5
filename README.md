@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+60 is the maximum number of marbles (game pieces) in Chinese checkers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
