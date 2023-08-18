@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
+1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
