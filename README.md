@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the amount of money one has if one has one coin of each U.S. denomination less than a dollar (penny, nickel, dime, quarter, half dollar) in cents.
+138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
