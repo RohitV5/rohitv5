@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the minimum driving age for a car or van in the United Kingdom.
+911 is the number of days after September 11th that the Madrid Attack took place.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
