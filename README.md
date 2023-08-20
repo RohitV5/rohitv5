@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3 is the number of sets needed to be won to win the whole match in volleyball.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
