@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+74 is the number of stars obtained by SpongeBob SquarePants in his driving school.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
