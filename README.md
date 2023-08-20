@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+74 is the number of stars obtained by SpongeBob SquarePants in his driving school.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
