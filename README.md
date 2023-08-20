@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the maximum number of electrons that can fit in an f sublevel.
+123 is the atomic number of the yet-to-be-discovered element unbitrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
