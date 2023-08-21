@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
