@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of tennis titles Martina Navratilova has, an all-time record for men or women.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
