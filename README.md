@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the serial number of protagonist John from the Halo Series.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
