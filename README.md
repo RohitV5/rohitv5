@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of law enforcement officers killed in the line of duty in 1998.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
