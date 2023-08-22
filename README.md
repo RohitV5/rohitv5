@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the percentage of all scald burns to children from hot tap water.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
