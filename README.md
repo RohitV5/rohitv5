@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the Opus number of one of Beethoven's greatest works.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
