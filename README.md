@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the cholesterol level above which is considered high risk.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
