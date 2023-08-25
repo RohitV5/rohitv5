@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is a number to report children / youth at risk in France.
+72 is the percentage of water of which the human body is composed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
