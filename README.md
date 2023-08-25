@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the maximum number of electrons that can fit in an f sublevel.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
