@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
+89 is the atomic number of actinium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
