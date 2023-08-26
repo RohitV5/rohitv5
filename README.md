@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the holy number of Discordianism, as dictated by the Law of Fives.
+25 is the minimum age of candidates for election to the United States House of Representatives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
