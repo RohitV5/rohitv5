@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
