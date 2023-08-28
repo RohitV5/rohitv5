@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the highest test score of Australian cricket captain Michael Clarke.
+106000000000 is the number of homo sapiens that have lived since speciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
