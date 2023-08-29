@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the number of galaxies in the observable universe.
+13 is the number of colonies that formed the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
