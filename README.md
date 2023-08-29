@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
+194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
