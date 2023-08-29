@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of films that actor Neal Burns appeared in between 1915 and 1946.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
