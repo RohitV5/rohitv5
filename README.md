@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
