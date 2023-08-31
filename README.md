@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is one of the first three area codes created in California.
+196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
