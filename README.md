@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
+8 is the number of legs that arachnids have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
