@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the rank of the United States in world population density.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
