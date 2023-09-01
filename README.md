@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the length (years) of the Eighty Years' War (1568–1648).
+360 is the number of degrees in a circle for the purpose of angular measurement.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
