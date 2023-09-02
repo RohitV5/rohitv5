@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
