@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+53 is the maximum number of facial muscles a smile can require.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
