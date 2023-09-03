@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+24 is the number of a car in the NASCAR Sprint Cup Series owned by Hendrick Motorsports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
