@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the number of detectable earthquakes in the world each year.
+242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
