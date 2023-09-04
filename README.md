@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the record number of goals scored by France at the 1998 World Cup.
+433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
