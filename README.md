@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200000 is the number of couples in the United States that live together but are not married.
+42 is the number of gallons that one barrel of petroleum holds.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
