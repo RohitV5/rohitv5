@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
+25000000 is the number of different inhabited planets in the the Galactic Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
