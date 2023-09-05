@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1 is the number of moons orbiting Earth.
+10 is the number of Provinces in Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
