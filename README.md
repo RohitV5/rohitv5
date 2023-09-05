@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+10 is the highest score possible in Olympics gymnastics competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
