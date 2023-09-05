@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the number of blessings a religious Jewish person is expected to utter daily.
+112 is the atomic number of the element copernicium (formerly called ununbium).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
