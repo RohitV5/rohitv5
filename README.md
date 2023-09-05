@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the total number of major and minor keys in Western tonal music, including enharmonic equivalents.
+192 is the length in miles of the The Coast to Coast Walk in England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
