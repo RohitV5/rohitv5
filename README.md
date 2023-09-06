@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+74 is the number of stars obtained by SpongeBob SquarePants in his driving school.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
