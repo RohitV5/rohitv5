@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
