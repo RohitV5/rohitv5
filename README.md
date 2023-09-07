@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
