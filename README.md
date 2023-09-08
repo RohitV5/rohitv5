@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
+71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
