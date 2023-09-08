@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
