@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+170 is largest integer for which Google"s built-in calculator function can compute the factorial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
