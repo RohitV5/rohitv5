@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205 is the world speed record (mph) of a car on ice.
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
