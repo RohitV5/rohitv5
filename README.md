@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
+164 is the number of cards in the set Baseball Talk, released by Topps Baseball Card Company in 1989.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
