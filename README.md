@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3500000000000 is the estimated population of fish in the ocean.
+202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
