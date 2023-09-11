@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
+6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
