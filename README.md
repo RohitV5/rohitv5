@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-74 is the atomic number of tungsten.
+172 is the rank of Djibouti in world population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
