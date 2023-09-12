@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the standard length (year) of a term in office for a United States senator.
+34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
