@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the number of chromosomes found in the offspring of a donkey and a horse.
+386 is the number of Pokémon in the 3rd Generation National Pokédex.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
