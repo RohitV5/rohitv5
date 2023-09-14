@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
+195 is the number of episodes of Strange Paradise, a Canadian serial, aired on CBC Television from 1969-1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
