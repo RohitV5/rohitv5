@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
