@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the number of pence in a pound in the British currency until 1971.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
