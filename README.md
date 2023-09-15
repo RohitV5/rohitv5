@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
