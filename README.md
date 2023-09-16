@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
