@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+53 is the maximum number of players on a National Football League roster.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
