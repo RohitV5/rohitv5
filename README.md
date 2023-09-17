@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-231 is the number of cubic inches in a U.S. liquid gallon.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
