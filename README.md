@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000000000 is the number of bacteria on the surface of the human body.
+192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
