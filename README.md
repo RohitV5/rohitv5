@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-203 is the HTTP status code indicating partial information.
+190 is the medical emergency number in Ghana.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
