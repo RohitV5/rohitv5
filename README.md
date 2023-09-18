@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the temperature (F) of the normal body.
+45000000000 is the approximate number of fat cells in an average adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
