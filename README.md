@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
