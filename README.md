@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
