@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
