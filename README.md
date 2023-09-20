@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the percentage of all scald burns to children from hot tap water.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
