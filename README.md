@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is a common flight number for flights involved in crashes.
+190 is the number of member states of the United Nations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
