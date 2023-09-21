@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
