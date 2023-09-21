@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30000 is the number of distinct Chinese characters.
+194 is the NHL record number of saves, set by Bruce Sutter in 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
