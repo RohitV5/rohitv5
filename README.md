@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the temperature in Farenheit at which alcohol boils.
+119 is a number to report children / youth at risk in France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
