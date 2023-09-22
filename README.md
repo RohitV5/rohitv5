@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+2 is the number of stars in a binary star system (a stellar system consisting of two stars orbiting around their center of mass).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
