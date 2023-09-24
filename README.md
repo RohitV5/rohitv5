@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+3 is the number of notes in a triad, the basic form of any chord.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
