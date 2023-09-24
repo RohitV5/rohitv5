@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of spacetime dimensions in bosonic string theory.
+195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
