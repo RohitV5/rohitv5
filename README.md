@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+95 is the NBA record for Most Assists in a 7-game playoff series (by Magic Johnson of the Los Angeles Lakers in 1984).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
