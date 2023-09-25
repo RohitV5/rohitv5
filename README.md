@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the number for voicemail for mobile phones on the Vodafone network.
+800000000 is the number of active users on Facebook as of December 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
