@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
