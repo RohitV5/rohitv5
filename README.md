@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
