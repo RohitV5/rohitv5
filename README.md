@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the atomic number of the yet-to-be-discovered element unbiquadium.
+163 is the atomic number of an element temporarily called Unhextrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
