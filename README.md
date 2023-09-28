@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
+242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
