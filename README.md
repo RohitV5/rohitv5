@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the size, in bits, of certain integer data types, used in computer representations of numbers.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
