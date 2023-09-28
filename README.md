@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the serial number of protagonist John from the Halo Series.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
