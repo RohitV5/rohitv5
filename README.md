@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number of letters in the Danish and Swedish alphabets (not counting W), and also in the Arabic and Esperanto alphabets.
+14 is the number of pieces the body of Osiris was torn into by his fratricidal brother Set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
