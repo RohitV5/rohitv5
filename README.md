@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+115 is the atomic number of an element temporarily called ununpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
