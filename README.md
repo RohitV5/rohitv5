@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
+216 is the number of digits in a number that Max becomes obsessed with in the film Pi in his quest to find the numeric equation behind existence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
