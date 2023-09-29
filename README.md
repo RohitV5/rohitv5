@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205 is the world speed record (mph) of a car on ice.
+190 is the population of Arguisuelas, Castile-La Mancha, Spain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
