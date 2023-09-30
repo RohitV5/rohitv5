@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is the number of estimated distinct phonemes in the Taa language.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
