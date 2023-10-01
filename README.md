@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the atomic number of an element temporarily called Unhexhexium.
+72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
