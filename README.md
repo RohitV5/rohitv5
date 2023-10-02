@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-115 is the atomic number of an element temporarily called ununpentium.
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
