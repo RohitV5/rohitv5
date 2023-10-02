@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the distance off the coast of Malta that the ocean liner RMS Franconia was sunk by German torpedoes in 1916.
+113 is the atomic number of an element temporarily called ununtrium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
