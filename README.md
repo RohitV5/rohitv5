@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
