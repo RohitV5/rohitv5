@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
