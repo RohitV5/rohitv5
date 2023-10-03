@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-85 is the atomic number of astatine.
+150 is years in a sesquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
