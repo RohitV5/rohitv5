@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
