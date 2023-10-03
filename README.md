@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+64 is the maximum number of strokes in any Chinese character.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
