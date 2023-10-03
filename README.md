@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
