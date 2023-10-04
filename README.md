@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the number of different beverages the Coca Cola company offers.
+142600 is tonnes of gold mined in the world by the end of 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
