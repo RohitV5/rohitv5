@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
