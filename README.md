@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000 is the number of parts in the Boeing 747-400.
+60 is the highest obtainable level on World of Warcraft (not including expansions).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
