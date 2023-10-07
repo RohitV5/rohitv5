@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+227 is the highest score ever in the Eurovision Song Contest, achieved by Katrina and the Waves of the UK in 1997, before the Semi-final system was introduced in 2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
