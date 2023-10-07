@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
