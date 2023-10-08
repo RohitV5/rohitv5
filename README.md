@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the angle between two planets in degrees so that they are in an astrological aspect called a sesquiquadrate.
+500 is the number of detectable earthquakes in the world each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
