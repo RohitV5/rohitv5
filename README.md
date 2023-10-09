@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the port number of UDP and TCP for the Domain Name System protocol.
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
