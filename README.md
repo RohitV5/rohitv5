@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
