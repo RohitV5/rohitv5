@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
+172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
