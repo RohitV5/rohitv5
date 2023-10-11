@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
