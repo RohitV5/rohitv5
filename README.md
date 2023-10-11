@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+28 is the number of letters in the Danish and Swedish alphabets (not counting W), and also in the Arabic and Esperanto alphabets.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
