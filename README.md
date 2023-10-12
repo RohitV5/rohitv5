@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
+108 is the number of cards in a deck of UNO cards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
