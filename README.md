@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+72 is the number of languages spoken at the Tower of Babylon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
