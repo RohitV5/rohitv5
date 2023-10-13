@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the number of languages spoken at the Tower of Babylon.
+128 is the number of characters in the ASCII character set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
