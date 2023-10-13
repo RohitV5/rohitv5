@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
