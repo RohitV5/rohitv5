@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the official end score for Cribbage.
+450 is a perfect score in Canadian five-pin bowling.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
