@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of US gallons in a barrel of oil.
+24 is the number of cycles in the Chinese solar year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
