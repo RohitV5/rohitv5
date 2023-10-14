@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+42 is the number of US gallons in a barrel of oil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
