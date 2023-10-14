@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the life duration of the ovule in hours.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
