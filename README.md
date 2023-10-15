@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the heaviest stable isotope of any element (lead).
+119 is the default port for unencrypted NNTP connections.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
