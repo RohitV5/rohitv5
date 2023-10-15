@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
