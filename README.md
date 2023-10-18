@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the emergency telephone number in Colombia.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
