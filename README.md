@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+56 is the number of layers of the Universe according to Aristotle (Earth plus 55 crystalline spheres above it).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
