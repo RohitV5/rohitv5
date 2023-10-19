@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+101 is the number of the first check for new checking account in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
