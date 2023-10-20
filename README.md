@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is days between the spring and fall equinoxes.
+463 is the number of days in the synodic period of Ceres.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
