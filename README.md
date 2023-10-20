@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-256 is the number of NFL regular season football games.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
