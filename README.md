@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the number of teams that qualified for the finals of the FIFA World Cup from 1934 through 1978 (although for various reasons, only 15 competed in the 1938 and 1950 finals).
+132 is the number of runs Pakistan was shot out o hand over the World cup trophy to a strong australian team in the Cricket World Cup 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
