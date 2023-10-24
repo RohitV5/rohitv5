@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the atomic number of Untrioctium, a temporary chemical element.
+59 is the number corresponding to the last second in a given minute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
