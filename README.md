@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the code for international direct dial phone calls to India.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
