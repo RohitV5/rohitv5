@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-164 is the number of episodes that the TV show The Adventures of Rin Tin Tin ran on ABC from 1954 to 1959.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
