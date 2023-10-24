@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+38 is the number of minutes in the shortest war in history in which Zanzibar surrendered to England in 1896.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
