@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-84 is the code for international direct dial phone calls to Vietnam.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
