@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
