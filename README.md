@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the NHL record number of saves, set by Bruce Sutter in 1982.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
