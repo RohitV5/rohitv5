@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the country code for Mauritius.
+7 is the number of suicides mentioned in the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
