@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the number of verses in the longest chapter, the Psalm 119 of the Bible.
+216 is the number of digits in a number that Max becomes obsessed with in the film Pi in his quest to find the numeric equation behind existence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
