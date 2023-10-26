@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
+169 is the first number of an automatic IPv4 address assigned by TCP/IP when no external networking device is contactable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
