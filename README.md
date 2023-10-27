@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of episodes that the The Mary Tyler Moore Show ran on CBS from 1970 to 1977.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
