@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the rank of Marshall Islands in world population.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
