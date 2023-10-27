@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of tracks on The Beatles' eponymous album, usually known as The White Album.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
