@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
