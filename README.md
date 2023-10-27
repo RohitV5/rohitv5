@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
+88 is the approximate number of days it takes Mercury to complete its orbit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
