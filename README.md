@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
