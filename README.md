@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-103 is the atomic number of lawrencium, an actinide.
+190 is the rank of Uruguay in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
