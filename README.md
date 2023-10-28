@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
