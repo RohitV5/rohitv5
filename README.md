@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
