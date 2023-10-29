@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-74 is the number of stars obtained by SpongeBob SquarePants in his driving school.
+21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
