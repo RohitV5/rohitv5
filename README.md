@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
