@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of colors formed by a 6 color cube, sometimes known as the web-safe color palette.
+153 is the code for "mental processes & intelligence" in the Dewey Decimal Classification.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
