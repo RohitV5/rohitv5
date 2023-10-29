@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
