@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
