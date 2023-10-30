@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the number of musical instruments specified in General MIDI.
+14 is the number of muqatta'at in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
