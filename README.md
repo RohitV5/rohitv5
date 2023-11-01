@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+150 is the number of estimated distinct phonemes in the Taa language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
