@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the atomic number of an element not yet observed called Untriseptium.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
