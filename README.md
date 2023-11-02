@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-261 is number of possible unfolded tesseract patterns.
+171 is the atomic number of an element called Ununseptunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
