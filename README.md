@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the number of episodes of the Cosby Show that ran on NBC from 1984-1992.
+366 is the number of days in a leap year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
