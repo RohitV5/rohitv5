@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
+66 is the number of years of the longest hiccups on record by an American pig farmer from 1922 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
