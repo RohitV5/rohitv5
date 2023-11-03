@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of function keys on most PC keyboards (F1 through F12).
+72 is the number of episodes in the original airing of Futurama.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
