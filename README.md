@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-156 is the number of years that Hong Kong was under British colony rule.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
