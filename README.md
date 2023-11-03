@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
