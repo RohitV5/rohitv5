@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the electricity emergency telephone number in Indonesia.
+103 is the atomic number of lawrencium, an actinide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
