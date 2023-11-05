@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-130 is the approximate maximum height in meters of trees.
+48 is the number of Ptolemaic constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
