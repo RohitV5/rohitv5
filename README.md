@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number of the Vault that is the starting area of Fallout 3.
+930000 is the number of words in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
