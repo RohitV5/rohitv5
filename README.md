@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
