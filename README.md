@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+198 is the population of Wormshill, Kent, England.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
