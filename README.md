@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the atomic number of an element temporarily called Unseptquadium.
+42 is the number of US gallons in a barrel of oil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
