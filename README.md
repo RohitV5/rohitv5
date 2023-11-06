@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000 is the number of people buried in Père Lachaise Cemetery, the most visited cemetary in the world, opened in 1804.
+240 is the number of pence in a pound in the British currency until 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
