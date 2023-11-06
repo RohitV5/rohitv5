@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of points that a Premier League team needs to avoid relegation in soccer.
+1 is the number of moons orbiting Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
