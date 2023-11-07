@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
+3825000 is the number of entries on Wikipedia in the English language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
