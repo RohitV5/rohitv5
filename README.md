@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the temperature in Farenheit at which alcohol boils.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
