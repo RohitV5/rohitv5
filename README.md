@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
+166 is the number of episodes that the Flintstones ran on ABC from 1960 to 1966.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
