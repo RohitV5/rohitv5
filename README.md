@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the number of constellations in the sky as defined by the International Astronomical Union.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
