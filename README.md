@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
