@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
+66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
