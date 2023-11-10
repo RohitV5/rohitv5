@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
