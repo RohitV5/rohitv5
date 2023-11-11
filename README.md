@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the fire emergency telephone number in Austria.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
