@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+230 is the common voltage in the European Union.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
