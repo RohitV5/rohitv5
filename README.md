@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-470 is the minimum length in yards from the tee to the hole on a Par 5.
+29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
