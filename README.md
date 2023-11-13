@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+14 is the number of times that a typical dairy cow lies down and stands up a day on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
