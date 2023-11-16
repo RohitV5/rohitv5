@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the percentage of movies released that are Rated R.
+6 is the number of dots in a Braille cell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
