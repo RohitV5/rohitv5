@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is days between the spring and fall equinoxes.
+493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
