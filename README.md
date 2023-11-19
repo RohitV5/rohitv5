@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+11 is the number of players on a soccer team on the field at a time as well as in a cricket team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
