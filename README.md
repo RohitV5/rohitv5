@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
