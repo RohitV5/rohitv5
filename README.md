@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+100 is the minimum distance in yards for a Par 3 on a golf course.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
