@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the number of films that actress Rose Tapley appeared in.
+61 is the number of points required to win a "standard" game of Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
