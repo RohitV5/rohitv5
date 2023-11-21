@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-402000000 is the number of native speakers of English.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
