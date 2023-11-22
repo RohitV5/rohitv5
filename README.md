@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
