@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
+175 is years Harriet (1830–2006) the Galápagos tortoise lived.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
