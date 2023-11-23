@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
