@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the total number of cards in the game Racko.
+128 is the number of musical instruments specified in General MIDI.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
