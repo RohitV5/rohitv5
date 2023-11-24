@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+14 is the number of times that a typical dairy cow lies down and stands up a day on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
