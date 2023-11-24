@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90000 is the average number of hairs that redheads have.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
