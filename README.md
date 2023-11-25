@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of different characters that can be used with a standard English Keyboard.
+6 is the number of points received for a touchdown in American and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
