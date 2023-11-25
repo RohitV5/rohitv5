@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-85 is the IQ and nickname of Aaron in Alien 3.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
