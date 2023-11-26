@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the minimum driving age for a car or van in the United Kingdom.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
