@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
+114 is the number of chapter in the Quran, the holy book of Islam contains 114.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
