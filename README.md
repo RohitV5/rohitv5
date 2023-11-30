@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
+56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
