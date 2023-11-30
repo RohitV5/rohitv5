@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the rank of Mauritania in terms of world population.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
