@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
