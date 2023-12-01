@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the number of odd numbered days during a non-leap year.
+214 is the SMTP status code for help message.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
