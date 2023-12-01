@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58 is the number of counties in California.
+12 is the largest number that has just one syllable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
