@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
