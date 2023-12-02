@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the maximal number of horses in one row for carriage.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
