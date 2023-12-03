@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-197 is the approximate atomic mass of Gold.
+60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
