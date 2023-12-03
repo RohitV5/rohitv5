@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the number of episodes of Chickenman series which began in 1966.
+5 is the most common number of gears for automobiles with manual transmission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
