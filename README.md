@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the number of constellations in the sky as defined by the International Astronomical Union.
+178 is the atomic number of an element temporarily called Unseptoctium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
