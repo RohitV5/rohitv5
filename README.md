@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of home runs that José Hernández hit in his MLB career.
+108 is the percentage volume expansion of freezing water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
