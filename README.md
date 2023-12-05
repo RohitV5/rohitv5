@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of red cards as well as the number of blue cards in a normal deck of cards.
+167 is the number of workers trapped for more than 24 hours in the Blyvooruitzicht gold mine in Johannesburg, South Africa on January 18, 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
