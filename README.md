@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+168 is the number of the episoodes that Hogan's Heroes ran on CBS from 1965 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
