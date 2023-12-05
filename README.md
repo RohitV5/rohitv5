@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the number of counties in Florida.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
