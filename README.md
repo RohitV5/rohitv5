@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-850 is the maximum possible Fair Isaac credit score.
+14 is the number of pounds in a stone in traditional British units of weight.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
