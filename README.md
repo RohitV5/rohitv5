@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the minimum grade required to pass an exam, or class, in many areas.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
