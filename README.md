@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-649 is the number of Pokémon as of Pokémon Black and White versions.
+32 is the number of brains a leech has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
