@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the common voltage in the European Union.
+195 is the rank of Waco, Texas by largest city population in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
