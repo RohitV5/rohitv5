@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the combined 2-year total of home runs for baseball's Sammy Sosa with 66 home runs in 1999 and 63 in 2000.
+59 is the number on a button commonly worn by feminist activists in the 1970s (based on the claim that a woman earned 59 cents to an equally qualified man's dollar).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
