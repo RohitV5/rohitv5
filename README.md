@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
