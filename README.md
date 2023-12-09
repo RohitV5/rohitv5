@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
