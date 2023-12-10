@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the atomic number of Unbiseptium, an element that has not yet been discovered.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
