@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+128 is the atomic number of unbioctium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
