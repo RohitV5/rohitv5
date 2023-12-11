@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
