@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
