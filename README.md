@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-432 is three-dozen sets of a dozen, making it three gross.
+172 is the temperature in Farenheit at which alcohol boils.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
