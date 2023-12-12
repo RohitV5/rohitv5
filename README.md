@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of points required to win a game in badminton and table tennis (before 2001).
+150000000 is the number of items held in the British Library.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
