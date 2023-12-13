@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
