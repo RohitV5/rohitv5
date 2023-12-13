@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
