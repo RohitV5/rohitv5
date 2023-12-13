@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
+110 is the number of stories of both towers of the former World Trade Center in New York.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
