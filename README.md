@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the number of groats in a guinea in British pre-decimal currency.
+122 is the traffic emergency telephone number in China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
