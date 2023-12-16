@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20 is the number of questions in the popular party game Twenty Questions.
+167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
