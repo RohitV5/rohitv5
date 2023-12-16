@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
