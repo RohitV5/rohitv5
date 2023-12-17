@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
+185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
