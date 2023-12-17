@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the telephone number "to report a car breakdown on the highway in Austria.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
