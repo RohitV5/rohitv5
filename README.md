@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
+55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
