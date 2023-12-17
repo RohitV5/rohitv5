@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the maximum number of players on a National Football League roster.
+108 is the percentage volume expansion of freezing water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
