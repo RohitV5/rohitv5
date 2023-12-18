@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the percentage of girls in Bangladesh that are married by age 18.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
