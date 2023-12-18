@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is miles of shoreline of Lake Berryessa in Napa County, California.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
