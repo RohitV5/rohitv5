@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
