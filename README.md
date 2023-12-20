@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the number of odd numbered days during a non-leap year.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
