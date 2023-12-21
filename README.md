@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the TCP port used for POP3 email protocol.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
