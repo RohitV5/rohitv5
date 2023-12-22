@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the number serving a monkiker for Indie music.
+23 is the number of crosses on Calvary in the Monty Python film Life Of Brian.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
