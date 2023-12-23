@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+171 is the record number of goals scored by France at the 1998 World Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
