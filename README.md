@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
