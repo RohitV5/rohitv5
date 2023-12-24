@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5000 is the number of base pairs in the DNA of the simplest viruses.
+180 is the standard number of days in the school year in most areas of the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
