@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
+92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
