@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the atomic number of europium.
+25 is the percentage of all scald burns to children from hot tap water.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
