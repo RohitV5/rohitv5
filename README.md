@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the approximate number of fat cells in an average adult.
+17 is the maximum number of strokes of a Chinese radical.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
