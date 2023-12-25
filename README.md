@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
