@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+15 is the number of checkers each side has at the start of a backgammon game.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
