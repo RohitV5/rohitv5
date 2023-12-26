@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the rank of the Palestinian territories in world population.
+54 is the number of countries in Africa.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
