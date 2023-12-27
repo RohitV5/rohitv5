@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
