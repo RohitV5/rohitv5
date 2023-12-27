@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-361 is the number of positions on a standard 19 x 19 Go board.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
