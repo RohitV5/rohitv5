@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is a common price ending in psychological pricing.
+72 is the average number of heartbeats per minute for a resting adult.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
