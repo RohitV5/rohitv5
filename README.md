@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the population density in square kilometers of Italy, the fifth-highest population density in Europe.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
