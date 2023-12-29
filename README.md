@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
