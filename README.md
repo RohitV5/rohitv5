@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
+1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
