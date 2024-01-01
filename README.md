@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the name of a hip hop, active 1990-2004.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
