@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14500 is the number of unique English words occur in the King James Version of the Bible.
+42 is the sum of the codes of the letters in the words "BIG BANG" using the encoding A=1, B=2, C=3, etc.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
