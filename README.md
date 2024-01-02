@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the rank of Andorra in world population.
+150 is years in a sesquicentennial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
