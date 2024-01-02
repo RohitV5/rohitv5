@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
+1e+83 is the number of fundamental particles in the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
