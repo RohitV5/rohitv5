@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16 is the number of personality types in the Myers-Briggs classification system.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
