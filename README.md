@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the length of the Judgment at Nuremberg measured in 186 minutes.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
