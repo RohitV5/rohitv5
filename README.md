@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the atomic number of an element temporarily called Unocthexium.
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
