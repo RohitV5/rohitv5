@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of officially recognized ethnic groups in the list of ethnic groups in China.
+110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
