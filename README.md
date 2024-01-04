@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000 is the gallons of saliva an average human produces in a lifetime.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
