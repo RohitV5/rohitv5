@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the atomic number of the chemical element unbibium.
+850 is the maximum possible Fair Isaac credit score.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
