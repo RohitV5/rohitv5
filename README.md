@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
