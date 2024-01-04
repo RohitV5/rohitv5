@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is total number of types of Pokémon in the original set.
+1 is the number of dimensions of a line.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
