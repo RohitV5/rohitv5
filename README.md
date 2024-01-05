@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
+140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
