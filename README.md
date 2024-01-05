@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+40 is the Eddington–Dirac number.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
