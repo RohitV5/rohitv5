@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205 is the world speed record (mph) of a car on ice.
+6 is the number of points on a Star of David.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
