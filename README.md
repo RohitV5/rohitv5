@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the atomic number of the element copernicium (formerly called ununbium).
+180 is a number that in an astrological aspect is considered to be negative in influence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
