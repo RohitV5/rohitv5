@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the number of countries in Africa.
+192 is the atomic number of an element temporarily called Unennbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
