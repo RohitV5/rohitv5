@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
+11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
