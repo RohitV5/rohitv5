@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+137 is a radioactive isotope of Caesium formed by nuclear fission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
