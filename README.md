@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-98 is the temperature (F) of the normal body.
+183 is the rank of the U.S. Virgin Islands in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
