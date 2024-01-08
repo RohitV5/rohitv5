@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+27 is the number of atoms in the average human body.
+56 is the number of men who signed the United States Declaration of Independence in 1776.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
