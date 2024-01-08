@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+114 is the element with the highest number of protons yet discovered, Ununquadium with the highest number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
