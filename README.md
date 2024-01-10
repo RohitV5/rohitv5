@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-555 is the number of seats of the airliner A380-800.
+15 is the legal age for sexual intercourse in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
