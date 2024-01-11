@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+116 is the number of years that the Hundred Years' War between France and England, from 1337 to 1453, actually lasted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
