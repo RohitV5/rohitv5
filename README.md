@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+37 is the number of slots in European Roulette (numbered 0 through 36, the 00 is not used in European roulette as it is in American roulette).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
