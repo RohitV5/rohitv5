@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-256 is the number of NFL regular season football games.
+6 is the number of symbolic foods placed on the Passover Seder Plate.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
