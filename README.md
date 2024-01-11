@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of constellations in the ecliptic (or signs of the zodiac).
+295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
