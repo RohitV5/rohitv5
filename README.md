@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-564000 is the number of words in War and Peace by Leo Tolstoy.
+2 is the first magic number in physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
