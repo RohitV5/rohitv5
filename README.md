@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the number of nonequivalent starting hands in the Texas hold "em.
+213 is the name of a hip hop, active 1990-2004.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
