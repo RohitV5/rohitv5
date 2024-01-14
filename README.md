@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+1600000 is the number of people employed by the Indian railway system in India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
