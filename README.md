@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
