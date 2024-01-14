@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-231 is the number of cubic inches in a U.S. liquid gallon.
+7 is the number of estimated objects that can be simultaneously held in human working memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
