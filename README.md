@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
