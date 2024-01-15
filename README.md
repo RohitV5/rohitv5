@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
