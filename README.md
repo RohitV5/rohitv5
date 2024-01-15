@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
