@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
