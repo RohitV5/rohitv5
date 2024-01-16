@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1728 is braces were first invented by Pierre Fauchard.
+136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
