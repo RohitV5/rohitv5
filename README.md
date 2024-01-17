@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the number of historic building in the Braden Castle Park Historic District in Bradenton, Florida.
+248 is the number of organs in the human body as traditionally depicted.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
