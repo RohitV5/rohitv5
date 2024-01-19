@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
+2600 is the length of brink in feet of the Canadian "Horseshoe" Falls located in Niagara Falls, Ontario.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
