@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+117 is the height in metres of the tallest tree recorded, located in Humboldt Redwoods State Park, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
