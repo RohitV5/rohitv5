@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the approximate number of weeks in a year.
+42 is the number of gallons that one barrel of petroleum holds.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
