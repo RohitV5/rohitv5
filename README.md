@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
+136 is the number of episodes the TV series Fame ran on NBC and syndication from 1982 to 1987.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
