@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-850 is the maximum possible Fair Isaac credit score.
+42 is the number of US gallons in a barrel of oil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
