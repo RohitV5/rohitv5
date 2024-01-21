@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the population of Wormshill, Kent, England.
+206 is the number of bones in the typical adult human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
