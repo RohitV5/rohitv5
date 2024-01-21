@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the atomic number of the yet-to-be-discovered element unbiquadium.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
