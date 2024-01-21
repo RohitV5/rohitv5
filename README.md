@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1300 is the number of babies born prematurely in the USA every day.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
