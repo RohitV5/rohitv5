@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
