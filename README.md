@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
