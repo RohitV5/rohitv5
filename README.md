@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
