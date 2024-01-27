@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+92 is the number of pounds of sugar the average American child consumes per year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
