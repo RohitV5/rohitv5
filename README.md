@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
+13 is the Youngest age a minor can rent or purchase a T rated game by the ESRB without parental (age 18 or older) consent.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
