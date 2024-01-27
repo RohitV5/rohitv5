@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
+177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
