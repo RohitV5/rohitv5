@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the number of cards in a deck of playing cards, if two jokers are included.
+75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
