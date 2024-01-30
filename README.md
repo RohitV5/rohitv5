@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of positions on a number of radio countdown programs, most notably American Top 40 and American Country Countdown.
+174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
