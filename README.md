@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a number believed to be a magic number in nuclear physics.
+171 is the rank of Bahamas in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
