@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-18 is the number of bronze monks the Shaolin temple had in Chinese folklore.
+40 is the number of positions on a number of radio countdown programs, most notably American Top 40 and American Country Countdown.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
