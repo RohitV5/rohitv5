@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-156 is the number of episodes the TV series The West Wing ran on NBC from 1999 to 2006, including an extra episode.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
