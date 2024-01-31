@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the number of Delegates who attended the United States Constitutional Convention in 1787.
+1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
