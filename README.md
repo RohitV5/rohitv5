@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
+245 is the number of Jewish singers who returned from captivity in Babylon in circa 538 BCE BC following the rise of Cyrus the Great and the Persian Empire.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
