@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
+390 is the speed in feet per second that nerve impulses for muscle position travel at.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
