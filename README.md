@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
