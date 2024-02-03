@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+146 is the Guinness World Record for the most languages a poem was recited in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
