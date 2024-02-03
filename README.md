@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the atomic number of an element temporarily called Unoctbium.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
