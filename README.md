@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the HTTP status code indicating that a client should switch protocols.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
