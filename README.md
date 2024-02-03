@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the minimum age at which one can work in many U.S states.
+384 is the digest length of the secure hash function SHA-384 (384 is a low power of 2).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
