@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the record in miles per hour of John White's shot in squash.
+8674 is the number of unique words in the Hebrew Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
