@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
