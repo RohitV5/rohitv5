@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+30 is the minimum age for United States senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
