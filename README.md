@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
+100 is the minimum distance in yards for a Par 3 on a golf course.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
