@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of unique ranks in a suit in a pack of cards.
+404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
