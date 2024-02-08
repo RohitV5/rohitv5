@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of bones in the human foot.
+184 is a number believed to be a magic number in nuclear physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
