@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the atomic number of an element temporarily called Unocttrium.
+267 is the number of groups of order 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
