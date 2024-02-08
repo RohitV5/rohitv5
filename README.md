@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-564000 is the number of words in War and Peace by Leo Tolstoy.
+10 is the number of kingdoms in Five Dynasties and Ten Kingdoms Period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
