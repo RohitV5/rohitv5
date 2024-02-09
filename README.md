@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+5 is the number of Justices on the Supreme Court of the United States necessary to render a majority decision.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
