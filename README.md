@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
