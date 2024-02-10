@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the largest number that has just one syllable.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
