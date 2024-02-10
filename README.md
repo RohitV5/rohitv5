@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
