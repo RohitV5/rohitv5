@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
