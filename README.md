@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-170 is 170 is the maximum check-out possible in a standard game of darts (where the final score must be a double).
+168 is the number of touchdowns that NFL quarterback Drew Brees had with the San Diego Chargers (2001–2005) and New Orleans Saints (2006 through the 2008 season).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
