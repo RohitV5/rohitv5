@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
