@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
+192 is the distance in feet the Hampstead London Underground station is below ground level.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
