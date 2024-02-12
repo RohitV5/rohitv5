@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the atomic number of seaborgium (Unilhexium Unh).
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
