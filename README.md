@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+3000000000 is the number of base pairs in the human genome.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
