@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43687 is the number of toilet related accidents in the United States in 1996.
+3400000000 is the number of total number of speakers of Indo-European languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
