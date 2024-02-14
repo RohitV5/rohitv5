@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
