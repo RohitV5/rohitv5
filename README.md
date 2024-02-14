@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-450 is a perfect score in Canadian five-pin bowling.
+123 is the electricity emergency telephone number in Indonesia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
