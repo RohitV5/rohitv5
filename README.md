@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
