@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the approximate number of days it takes Mercury to complete its orbit.
+22 is the number of players on the field in a football (soccer) match.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
