@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the number serving a monkiker for Indie music.
+46 is the number of samurai, out of 47, who carried out the attack in the historical Ako vendetta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
