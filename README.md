@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
+120 is liters of water needed to produce 1 glass of wine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
