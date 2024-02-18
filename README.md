@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
