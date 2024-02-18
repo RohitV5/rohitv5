@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
