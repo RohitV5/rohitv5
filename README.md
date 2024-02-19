@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the earliest age that the emancipation of minors can occur in the U.S.
+112 is the number of surat al-Ikhlas in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
