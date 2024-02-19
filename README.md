@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of innings in a regulation, non-tied game of baseball.
+110 is the number of stories (by common reckoning) of the Sears Tower in Chicago.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
