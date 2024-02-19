@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of uprights that formed the Sarsen Circle at Stonehenge, also the supposed number of holes forming the arrays of Y and Z Holes at Stonehenge.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
