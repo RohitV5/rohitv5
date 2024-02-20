@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+64 is the total number of black and white squares on the game board in chess or draughts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
