@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+195 is the number of episodes of The Ed Allen Show, which began in 1948.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
