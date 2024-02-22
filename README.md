@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of circles of Hell in Dante's Divine Comedy.
+18 is the number of levels in hell in the Chinese mythos.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
