@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50000000 is the approximate number of people who fish per year in the United States.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
