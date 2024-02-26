@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
