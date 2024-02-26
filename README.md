@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of variations in Bach's Goldberg Variations.
+40 is the number of years of marriage as the ruby wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
