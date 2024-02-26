@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number of surat al-Ikhlas in the Qur'an.
+32 is the number of brains a leech has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
