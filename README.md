@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
+40000000 is the number of Americans that have "chronic halitosis," which is bad breath that never goes away.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
