@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
