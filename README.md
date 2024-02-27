@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the rank in world population for Albania.
+11 is the number of players in an American football team on the field at one time during play.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
