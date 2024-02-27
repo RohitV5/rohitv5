@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-31 is the number of days in the months January, March, May, July, August, October and December.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
