@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the number of polynucleotide strands in a DNA double helix.
+162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
