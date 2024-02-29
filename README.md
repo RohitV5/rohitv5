@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-92 is the percentage of water in watermelons.
+208 is the heaviest stable isotope of any element (lead).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
