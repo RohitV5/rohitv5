@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+170 is largest integer for which Google"s built-in calculator function can compute the factorial.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
