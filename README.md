@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is five gross (= 500 duodecimal, 5 × 144).
+300 is the approximate number of Spartans who fought to death at the Battle of Thermopylae.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
