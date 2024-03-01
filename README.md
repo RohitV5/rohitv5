@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
