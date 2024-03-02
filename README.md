@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-256 is the number of NFL regular season football games.
+179 is the number of even numbered days of the year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
