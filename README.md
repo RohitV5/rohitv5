@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the number of even numbered days of the year.
+5 is the holy number of Discordianism, as dictated by the Law of Fives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
