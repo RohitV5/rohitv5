@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the length in miles of the New Orleans and Northeastern Railroad.
+243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
