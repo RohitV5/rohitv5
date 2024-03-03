@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
