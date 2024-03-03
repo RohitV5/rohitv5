@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+161 is the number of games that former German soccer referree Gerd Hennig refereed between 1964 and 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
