@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of minutes that all flashbacks take place before the assassination attempt on the president in the film Vantage Point.
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
