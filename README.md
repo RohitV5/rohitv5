@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the estimation of the game-tree complexity in the game of Go.
+32 is the freezing point of water at sea level in degrees Fahrenheit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
