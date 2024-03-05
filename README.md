@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the minimum age at which one can work in many U.S states.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
