@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
