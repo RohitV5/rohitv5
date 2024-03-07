@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+158 is the number of verses of the national anthem of Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
