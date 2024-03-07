@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the maximum number of facial muscles a smile can require.
+126 is the atomic number of unbihexium, an element that has not yet been discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
