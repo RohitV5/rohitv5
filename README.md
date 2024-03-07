@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of types of viruses according to the Baltimore classification.
+5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
