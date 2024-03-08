@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
