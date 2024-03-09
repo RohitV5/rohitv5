@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
