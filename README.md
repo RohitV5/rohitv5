@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the atomic number of an element temporarily called Unhexhexium.
+11 is the number of players in an American football team on the field at one time during play.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
