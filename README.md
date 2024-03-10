@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61000 is the average number of people airborne over the US at any given hour.
+169 is the number of nonequivalent starting hands in the Texas hold "em.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
