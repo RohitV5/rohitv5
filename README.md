@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
+199 is the number of episodes of Coach in which actress Shelley Fabares appeared in 199 (of 200 total) episodes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
