@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
+196 is the length in miles of the New Orleans and Northeastern Railroad.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
