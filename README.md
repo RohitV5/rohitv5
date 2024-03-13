@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
+14500 is the number of unique English words occur in the King James Version of the Bible.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
