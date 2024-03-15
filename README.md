@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the number of pounds in a stone in traditional British units of weight.
+127 is the highest signed 8 bit integer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
