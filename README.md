@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of days it took to form the 2007 Belgian government.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
