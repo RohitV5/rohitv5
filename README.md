@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+17 is the number of flames emanating from the grenade cap-badge of the Grenadier Guards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
