@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
