@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
