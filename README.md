@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+62 is the number which Sigmund Freud has an irrational fear of.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
