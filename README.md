@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-16777216 is the number of different colors that can be generated using the hex code system in HTML.
+198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
