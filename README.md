@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the number of names of God, according to Kabbalah.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
