@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+11 is the number of players on a soccer team on the field at a time as well as in a cricket team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
