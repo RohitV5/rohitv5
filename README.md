@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the second highest possible score in darts that can be obtained by throwing three darts in a single visit to the oche.
+613 is a significant number in Judaism, as its metaphysics, the Kabbalah, views every full entity as divisible into 613 parts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
