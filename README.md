@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106000000000 is the number of homo sapiens that have lived since speciation.
+68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
