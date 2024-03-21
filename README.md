@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267000 is the number of words in James Joyce's Ulysses.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
