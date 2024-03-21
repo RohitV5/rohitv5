@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the legal age for sexual intercourse in many countries.
+42 is the number of US gallons in a barrel of oil.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
