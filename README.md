@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-83 is the highest UHF channel on older televisions made before the late 1970s.
+10 is the Number of dots in a tetractys.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
