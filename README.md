@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of eggs that female alligators lay, which hatch in 60 - 70 days.
+111 is the number occasionally referred to as "eleventy-one", as read in The Fellowship of the Ring by J.R.R.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
