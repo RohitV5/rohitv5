@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
+17 is 'the least random number' as described at MIT, according to hackers' lore.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
