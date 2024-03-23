@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the rank of Hey Joe (1966) by Jimi Hendrix on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
