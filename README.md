@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+6000000000000000000 is the number of transistor produced worldwide in 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
