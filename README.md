@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
+64 is the number of sexual positions in the Kama Sutra.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
