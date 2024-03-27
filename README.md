@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
