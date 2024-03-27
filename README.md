@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
+40 is the percentage of U.S. paper currency in circulation that was counterfeit by the end of the Civil War.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
