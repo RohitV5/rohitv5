@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90000 is the average number of hairs that redheads have.
+83 is the highest UHF channel on older televisions made before the late 1970s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
