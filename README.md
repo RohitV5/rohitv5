@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-85 is the atomic number of astatine.
+185 is the rank Grenada in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
