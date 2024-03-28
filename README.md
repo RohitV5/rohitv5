@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+28 is the number worn by the Clemson Tigers' record breaking running back C.J.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
