@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+40 is the Eddington–Dirac number.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
