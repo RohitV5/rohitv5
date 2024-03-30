@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the number of kingdoms in Five Dynasties and Ten Kingdoms Period.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
