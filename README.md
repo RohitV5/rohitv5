@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the radioisotope of nuclear isomer of Cadmium with a half-life of 14.1 years.
+166 is the number of films that Actress Margaret Joslin appeared in between 1910 and 1923.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
