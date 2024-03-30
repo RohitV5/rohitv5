@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+3 is the number of points received for a successful field goal in both American football and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
