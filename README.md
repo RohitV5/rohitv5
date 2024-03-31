@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the length in miles of the The Coast to Coast Walk in England.
+92 is the number of pounds of sugar the average American child consumes per year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
