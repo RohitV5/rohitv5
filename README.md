@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
