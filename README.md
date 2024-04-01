@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+50 is the traditional number of years in a jubilee period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
