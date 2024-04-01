@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the age a person must attain in order to be considered a supercentenarian.
+55 is the standard size of drum in US gallons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
