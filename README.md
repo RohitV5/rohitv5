@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is years in a sesquicentennial.
+85 is the IQ and nickname of Aaron in Alien 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
