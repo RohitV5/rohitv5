@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+695 is the number of people dead in the single deadliest tornado in United States history (the F5 Tri-State Tornado in 1925).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
