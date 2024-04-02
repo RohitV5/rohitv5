@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+63 is the number of groats in a guinea in British pre-decimal currency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
