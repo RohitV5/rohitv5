@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+180 is the maximum possible score in one turn at darts (three triple 20s).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
