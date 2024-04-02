@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-76 is the atomic number of osmium.
+50 is the number of states in the United States of America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
