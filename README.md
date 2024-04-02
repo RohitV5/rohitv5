@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
