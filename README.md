@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the medical emergency telephone number in Egypt.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
