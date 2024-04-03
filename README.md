@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of trump cards of the tarot deck if one does not consider The Fool to be a proper trump card.
+12 is the number of pence in a shilling in the former British currency system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
