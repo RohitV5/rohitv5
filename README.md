@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
