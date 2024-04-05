@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number of the Vault that is the starting area of Fallout 3.
+199 is the position that Tom Brady was picked in the 2000 NFL draft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
