@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-95 is the atomic number of americium.
+211 is the SMTP status code system status.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
