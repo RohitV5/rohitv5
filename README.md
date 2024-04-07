@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of colonies that formed the United States.
+114 is the number of chapters in the Quran.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
