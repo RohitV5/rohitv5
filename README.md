@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is times Muslims pray to Allah a day.
+142 is the number of home-based business ideas included in the 142 Now packet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
