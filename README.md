@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the number of throws in Judo.
+136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
