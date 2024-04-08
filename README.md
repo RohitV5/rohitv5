@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the rumored time for the release of Radiohead's pre-sale for their 2012 tour.
+213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
