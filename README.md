@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+40 is the Eddington–Dirac number.
+195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
