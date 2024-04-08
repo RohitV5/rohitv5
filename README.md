@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
