@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+70 is the number of years of marriage until the platinum wedding anniversary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
