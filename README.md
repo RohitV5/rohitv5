@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the medical emergency number in Ghana.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
