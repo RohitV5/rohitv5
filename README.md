@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the maximal number of horses in one row for carriage.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
