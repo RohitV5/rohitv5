@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
+158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
