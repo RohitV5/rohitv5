@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of steps in the gallows.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
