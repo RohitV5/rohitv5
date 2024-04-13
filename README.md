@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number on mobile phones implementing the GSM standard, where it redirects to the country-specific emergency number.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
