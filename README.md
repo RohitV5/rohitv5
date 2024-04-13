@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the year in AH in the Islamic calendar that corresponds to 749 - 750 CE.
+352 is the number of international appearances by Kristine Lilly for the USA women's national soccer team, an all-time record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
