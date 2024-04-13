@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+29 is the number of attributes existing according to The Strokes in You Only Live Once.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
