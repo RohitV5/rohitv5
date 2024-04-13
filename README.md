@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-280000000000000 is the number of possible unique physical addresses.
+128 is the number of ASCII characters (33 non-printing characters, mostly obsolete control characters that affect how text is processed, and 94 printable).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
