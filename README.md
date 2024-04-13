@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-203 is the HTTP status code indicating partial information.
+38 is the number of surviving plays written by William Shakespeare.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
