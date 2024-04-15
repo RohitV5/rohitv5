@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the Calling code for Zaire.
+171 is the rank of Bahamas in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
