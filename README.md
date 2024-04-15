@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the rank of Mauritania in terms of world population.
+142 is the number of staircases at Hogwarts School of Witchcraft and Wizardry, in the Harry Potter universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
