@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+168 is the number of episodes that Barney Miller ran on ABC from 1975 to 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
