@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+12 is the number of function keys on most PC keyboards (F1 through F12).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
