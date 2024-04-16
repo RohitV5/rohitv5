@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
+2500 is the number of letters on a typical typed page of text.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
