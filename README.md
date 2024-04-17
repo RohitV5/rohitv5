@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-850 is the maximum possible Fair Isaac credit score.
+Infinity is the number of universes in multiverse theory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
