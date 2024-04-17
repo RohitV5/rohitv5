@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the substitute for the number 17, which is considered unlucky in Italy.
+20 is the number of baby teeth in the deciduous dentition.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
