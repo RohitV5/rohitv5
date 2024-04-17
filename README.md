@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
