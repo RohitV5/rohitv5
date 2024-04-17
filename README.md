@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes in the TV series Hawaiian Eye that ran on ABC from 1959 to 1963.
+67890 is the number of largest decimal places of π that have been recited from memory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
