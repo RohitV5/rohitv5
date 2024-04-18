@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-91 is the amount of money one has if one has one coin of each U.S. denomination less than a dollar (penny, nickel, dime, quarter, half dollar) in cents.
+113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
