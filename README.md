@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of points on the stylized maple leaf on the Flag of Canada.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
