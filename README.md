@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+40 is the number of points that a Premier League team needs to avoid relegation in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
