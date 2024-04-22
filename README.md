@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-365 is the number of solar days in the mean tropical year.
+133 is the rank in world population for Albania.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
