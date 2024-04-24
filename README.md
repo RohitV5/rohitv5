@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the number of surat al-Ikhlas in the Qur'an.
+26 is the number of episodes in a television program each year (usually).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
