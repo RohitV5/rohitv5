@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+15 is the number of times an average person laughs a day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
