@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
