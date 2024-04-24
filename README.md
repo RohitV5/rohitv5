@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
+105 is the number of surat al-Fil in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
