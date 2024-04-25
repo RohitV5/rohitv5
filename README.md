@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
+600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
