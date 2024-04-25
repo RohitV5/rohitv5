@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of points that a Premier League team needs to avoid relegation in soccer.
+201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
