@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the number of odd numbered days during a non-leap year.
+122 is the atomic number of the chemical element unbibium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
