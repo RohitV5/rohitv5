@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the first course in a subject taught at a college or university in Australia, Canada, South Africa, or the United States.
+122 is the police emergency telephone number in Egypt.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
