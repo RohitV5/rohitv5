@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
+42 is the result given by the web search engines Google, Wolfram Alpha and Bing when the query "the answer to life the universe and everything" is entered as a search.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
