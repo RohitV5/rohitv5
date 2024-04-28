@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1300 is the number of babies born prematurely in the USA every day.
+7 is the number of periods, or horizontal rows of elements, in the periodic table.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
