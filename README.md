@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
+149 is the number of goals a Madagascar soccer team scored against itself after the coach argued a call, and players kicked the ball into their own net 149 times.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
