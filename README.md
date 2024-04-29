@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
+64 is the number of classical arts listed in many Indian scriptures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
