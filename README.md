@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the number of miles per hour an automobile accelerates from rest as one of the standard measurements of performance.
+188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
