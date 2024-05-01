@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the population of Arguisuelas, Castile-La Mancha, Spain.
+47 is the number of El-Aurians Scotty manages to beam up before their ship is destroyed by the energy ribbon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
