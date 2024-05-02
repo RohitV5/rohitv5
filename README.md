@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200000 is the number of couples in the United States that live together but are not married.
+40 is the number of attempts needed before the creation of the "water displacing" substance in the spray WD-40.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
