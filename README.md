@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+11 is the number of sides on the Canadian one-dollar coin (a hendecagon, an eleven-sided polygon).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
