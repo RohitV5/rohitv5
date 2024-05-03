@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of episodes with Moose, a dog, playing Eddie Crane on Frasier.
+139 is the rank of Oman in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
