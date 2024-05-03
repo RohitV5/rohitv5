@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is a radioactive isotope of Caesium formed by nuclear fission.
+26 is the number of bones in the normal human foot and ankle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
