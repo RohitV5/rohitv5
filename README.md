@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
