@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+144 is the number of square inches in a square foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
