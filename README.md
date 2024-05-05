@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
+54 is the number of milligrams of caffeine Mountain Dew has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
