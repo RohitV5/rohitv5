@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7 is the number of types of viruses according to the Baltimore classification.
+192 is the distance in feet the Hampstead London Underground station is below ground level.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
