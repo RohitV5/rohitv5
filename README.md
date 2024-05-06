@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
