@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the (critical) number of Florida electoral votes for the 2000 U.S. presidential election.
+1096000000 is the population of India in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
