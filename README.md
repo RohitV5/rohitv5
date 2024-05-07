@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+27 is the number of atoms in the average human body.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
