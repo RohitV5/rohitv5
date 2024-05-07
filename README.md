@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
+433 is the perfect score in the game show Fifteen To One, only ever achieved once in over 2000 shows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
