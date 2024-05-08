@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
