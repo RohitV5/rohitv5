@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
