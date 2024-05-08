@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-400000000000 is the number of stars in the Milky Way galaxy.
+164 is the number of home runs the Baltimore Orioles hit in 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
