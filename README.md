@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the police non-emergency number in Denmark.
+96 is the rating of Skyrim on metacritic.com.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
