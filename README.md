@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the most common number of gears for automobiles with manual transmission.
+32 is the number of teeth of a full set of teeth in an adult human, including wisdom teeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
