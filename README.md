@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of legal proceedings against 149 communists in Estonia in 1924.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
