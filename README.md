@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of Mbit/s of a non-standard extension of IEEE 802.11g wireless network using channel bonding.
+10000000000 is the number of times the original Pac Man has been played as estimated by Namco, the manufacturers of Pac Man.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
