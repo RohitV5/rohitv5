@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the focal length in millimeters of the normal lens in 35 mm photography.
+116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
