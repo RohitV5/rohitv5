@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the number of countries in Africa.
+44 is the number of candles in a box of Hanukkah candles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
