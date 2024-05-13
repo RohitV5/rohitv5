@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the number of episodes of the TV series Your Show of Shows that ran on NBC from 1950 to 1954.
+98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
