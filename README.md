@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the cholesterol level above which is considered high risk.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
