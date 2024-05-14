@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the number of even numbered days of the year.
+177 is the rank of Netherlands Antilles in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
