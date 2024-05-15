@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is minuscule 195 is a Greek minuscule manuscript of the New Testament, on parchment.
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
