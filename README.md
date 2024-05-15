@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-432 is three-dozen sets of a dozen, making it three gross.
+199 is travis Pastrana's number for dirtbiking and rally car racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
