@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
