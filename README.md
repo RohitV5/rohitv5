@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
