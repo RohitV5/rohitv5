@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
+58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
