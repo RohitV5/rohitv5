@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+112 is the number of surat al-Ikhlas in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
