@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
