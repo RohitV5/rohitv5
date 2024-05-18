@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the average thickness of the Arctic ice sheet in feet.
+64 is the size in bits of certain data types in some computer programming languages.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
