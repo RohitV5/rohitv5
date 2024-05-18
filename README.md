@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
+172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
