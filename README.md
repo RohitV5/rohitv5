@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000000000000000000 is the estimated insect population.
+193 is the number of member states of the United Nations as of 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
