@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+180 is the standard number of days in the school year in most areas of the USA.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
