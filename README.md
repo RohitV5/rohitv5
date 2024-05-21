@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the zero of the Celsius temperature scale (to the nearest whole number) in Kelvin.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
