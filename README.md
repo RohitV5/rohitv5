@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the highest number on one end of a standard domino.
+108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
