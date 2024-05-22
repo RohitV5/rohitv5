@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
