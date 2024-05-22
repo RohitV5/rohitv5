@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+360000 is the number of words definitions in the New Oxford Dictionary of English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
