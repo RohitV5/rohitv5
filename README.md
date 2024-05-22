@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-49 is the number of days and night Siddhartha Gautama spent meditating as a holy man.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
