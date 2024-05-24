@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
