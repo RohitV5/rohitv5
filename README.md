@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the Intel 8086 instruction for no operation (NOP).
+61 is the number of points required to win a "standard" game of Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
