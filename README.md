@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the number of chapters in the Book of Mormon.
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
