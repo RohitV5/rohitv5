@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the number of letters in the Danish and Swedish alphabets (not counting W), and also in the Arabic and Esperanto alphabets.
+167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
