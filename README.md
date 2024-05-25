@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
