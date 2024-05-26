@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the total number of national football associations of UEFA.
+60 is the maximum number of marbles (game pieces) in Chinese checkers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
