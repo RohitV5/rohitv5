@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
