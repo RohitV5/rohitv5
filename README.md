@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4.52e+46 is the upper bound for the number of legal chess positions.
+195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
