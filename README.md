@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
