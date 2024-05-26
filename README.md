@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+144 is the Intel 8086 instruction for no operation (NOP).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
