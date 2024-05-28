@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
+101 is is the number of floors of Taipei 101, the tallest skyscraper in the world from 2004 to 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
