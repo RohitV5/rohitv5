@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is liters of water needed to produce 1 cup of coffee.
+225 is the longest distance in miles a deepwater lobster has been recorded to travel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
