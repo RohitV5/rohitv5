@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of times an average person laughs a day.
+177 is the atomic number of an element temporarily called Unseptseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
