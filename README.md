@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+173 is years it takes for all the water in Lake Superior to be changed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
