@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of incarnations of The Doctor in BBC sci-fi series Doctor Who.
+27 is the number of moons of the planet Uranus.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
