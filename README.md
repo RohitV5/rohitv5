@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the HTTP status code indicating that a client should switch protocols.
+154 is the period in days that the sun follows on gamma-ray flares.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
