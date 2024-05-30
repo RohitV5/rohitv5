@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+166 is luxembourg ranks #166 in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
