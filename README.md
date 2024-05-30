@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the first area code of metropolitan Dallas, Texas.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
