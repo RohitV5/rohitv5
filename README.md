@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the atomic number of unbioctium, an element yet to be discovered.
+511 is the number of collaborators mathematician Paul Erdős had.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
