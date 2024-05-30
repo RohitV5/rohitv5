@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the number for voicemail for mobile phones on the Vodafone network.
+441 is the number of squares on a Super Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
