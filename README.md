@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000000 is the approximate number of fat cells in an average adult.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
