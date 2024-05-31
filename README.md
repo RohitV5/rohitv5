@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+83 is the number of fundamental particles in the observable universe.
+173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
