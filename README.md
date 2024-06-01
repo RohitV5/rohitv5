@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61000 is the average number of people airborne over the US at any given hour.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
