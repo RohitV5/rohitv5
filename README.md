@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
