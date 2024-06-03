@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the number of universes in multiverse theory.
+198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
