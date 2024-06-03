@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
