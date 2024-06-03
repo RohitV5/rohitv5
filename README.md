@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is a police term for a murder or homicide.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
