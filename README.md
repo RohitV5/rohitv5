@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the legal age for sexual intercourse in many countries.
+20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
