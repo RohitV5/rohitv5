@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
