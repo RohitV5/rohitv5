@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
+57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
