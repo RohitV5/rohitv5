@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the lower frequency band in kHz that amateur radio operators are allowed to transmit.
+1311000000 is the population of the People's Republic of China in 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
