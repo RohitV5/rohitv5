@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the miles per hours that the fastest moving land snake, the Black Mamba, can move.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
