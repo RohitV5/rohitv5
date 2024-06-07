@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+195 is the number of runs by Dick Culler in his Major League Baseball career from 1936-1949.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
