@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
