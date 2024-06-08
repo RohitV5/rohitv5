@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the max number of shine sprites in Super Mario Sunshine.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
