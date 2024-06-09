@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the highest signed 8 bit integer.
+120 is liters of water needed to produce 1 glass of wine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
