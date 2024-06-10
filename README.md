@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-350 is the number of cubic inches displaced in the most common form of the Small Block Chevrolet V8.
+101 is a number used to define the number of keys on a computer keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
