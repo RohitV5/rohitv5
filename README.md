@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the number of cents in a quarter.
+197 is the approximate atomic mass of Gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
