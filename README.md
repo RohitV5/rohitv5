@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
