@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22000 is the approximate number of workers who died during the building of the Panama Canal due to accidents and diseases.
+139 is the number of unlabeled topologies with 5 elements.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
