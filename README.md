@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9 is the number of circles of Hell in Dante's Divine Comedy.
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
