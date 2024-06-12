@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is a number to report children / youth at risk in France.
+176 is the rank of Vanuatu in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
