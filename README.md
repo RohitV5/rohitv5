@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+10 is the number of official inkblots in the Rorschach inkblot test.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
