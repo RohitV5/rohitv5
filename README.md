@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+108 is the number of stitches in an official Major League Baseball baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
