@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
+22 is the number of yards in a chain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
