@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
