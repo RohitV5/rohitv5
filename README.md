@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-38 is the number of surviving plays written by William Shakespeare.
+216 is the ISO's standard for paper sizes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
