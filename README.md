@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the death toll of the 1995 Oklahoma City bombing.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
