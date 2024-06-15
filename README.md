@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10000 is the number of other neurons each neuron is connected to in the human brain.
+3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
