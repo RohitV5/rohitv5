@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-74 is the atomic number of tungsten.
+24 is the number of frames per second at which motion picture film is usually projected.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
