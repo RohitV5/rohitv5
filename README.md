@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+139 is the atomic number of Untriennium, an unsynthesized chemical element.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
