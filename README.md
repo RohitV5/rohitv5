@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the number of months in 12 years.
+93 is that approximate distance in millions of miles the Sun is away from the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
