@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is degrees in a human"s field of vision (approximately).
+60 is the maximum number of marbles (game pieces) in Chinese checkers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
