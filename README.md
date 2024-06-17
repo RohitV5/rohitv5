@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4000 is the weight in pounds that the Great White Shark can grow to.
+180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
