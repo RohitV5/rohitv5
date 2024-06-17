@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
+167 is the atomic number of an element temporarily called Unhexseptium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
