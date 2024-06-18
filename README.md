@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
+50 is the approximate number of times a mother hen turns her egg in a day so the yolk does not stick to the shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
