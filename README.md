@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the rank of Zambia in population density.
+50 is the speed limit, in kilometers per hour, of Australian roads with unspecified limits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
