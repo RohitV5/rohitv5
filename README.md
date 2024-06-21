@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the Exit status indicated by Mac App Store software when receipt validation fails.
+91 is the code for international direct dial phone calls to India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
