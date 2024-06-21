@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-13 is the number of unique ranks in a suit in a pack of cards.
+30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
