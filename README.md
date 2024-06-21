@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
