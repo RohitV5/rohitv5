@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2500 is the number of letters on a typical typed page of text.
+181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
