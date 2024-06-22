@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a number that in an astrological aspect is considered to be negative in influence.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
