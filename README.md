@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the most common number of gears for automobiles with manual transmission.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
