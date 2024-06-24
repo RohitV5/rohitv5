@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
+150 is the number of estimated distinct phonemes in the Taa language.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
