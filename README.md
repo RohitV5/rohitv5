@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+53 is the port number of UDP and TCP for the Domain Name System protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
