@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-62 is the number which Sigmund Freud has an irrational fear of.
+187 is the number of the California Penal Code section describing murder.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
