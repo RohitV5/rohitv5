@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-500 is the longest advertised distance of the IndyCar Series and its premier race, the Indianapolis 500.
+525 is the number of scan lines in the NTSC television standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
