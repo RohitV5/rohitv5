@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5e+30 is the number of bacterial cells on Earth.
+122 is the atomic number of the chemical element unbibium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
