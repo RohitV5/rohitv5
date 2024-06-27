@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-105 is the atomic number of hahnium, also known as dubnium.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
