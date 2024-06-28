@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is miles that the Thames River flows through Ontario, Canada.
+11 is the approximate periodicity of a sunspot cycle in years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
