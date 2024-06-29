@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
