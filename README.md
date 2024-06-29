@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6000000000000000000 is the number of transistor produced worldwide in 2008.
+25 is the number of points needed to win a set in volleyball under rally scoring rules.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
