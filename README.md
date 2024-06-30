@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
