@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
+1000000000000 is the number of bacteria on the surface of the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
