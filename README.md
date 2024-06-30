@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of cups of milk needed to make one pound of butter.
+58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
