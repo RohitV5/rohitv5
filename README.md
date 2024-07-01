@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1979 is a song by American alternative rock band The Smashing Pumpkins.
+198 is the rank of Best of Little Walter (1964) by Little Walter on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
