@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-134 is the number of episodes of the TV series Xena Warrior Princess.
+32 is the freezing point of water at sea level in degrees Fahrenheit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
