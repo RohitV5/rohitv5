@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the official end score for Cribbage.
+199 is travis Pastrana's number for dirtbiking and rally car racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
