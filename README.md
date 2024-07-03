@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-89 is the number of units of each colour in the board game Blokus.
+5 is the number of Korotkoff sounds when measuring blood pressure.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
