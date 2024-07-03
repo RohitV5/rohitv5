@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the number of countries in the world if Taiwan is included.
+470 is the minimum length in yards from the tee to the hole on a Par 5.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
