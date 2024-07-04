@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the average thickness of the Arctic ice sheet in feet.
+15 is the number of minutes carbon monoxide can kill a person in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
