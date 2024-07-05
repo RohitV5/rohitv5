@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the police emergency telephone number in Egypt.
+196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
