@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+32 is the percentage of employees in the USA who eat lunch and work at the same time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
