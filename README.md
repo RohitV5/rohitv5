@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+143 is the number of episodes of the TV series The Adventures of Robin Hood on CBS from 1955 to 1959.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
