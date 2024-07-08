@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the number of universes in multiverse theory.
+166 is the feet above sea level at Turriff in Aberdeenshire, Scotland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
