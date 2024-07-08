@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the medical emergency telephone number in Egypt.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
