@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+240 is the common voltage in England and Australia before conversion to 230V standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
