@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+208 is the area code for the US state of Idaho.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
