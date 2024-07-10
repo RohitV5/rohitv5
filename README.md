@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the atomic number of an element temporarily called ununtrium.
+8 is the number of legs that arachnids have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
