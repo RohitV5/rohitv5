@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of hours it takes for the human body to make 1 to 3 pints of saliva.
+3000 is the number of years for which Carpenter ants have been used to close wounds in parts of India, Asia and South America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
