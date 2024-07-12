@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
+396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
