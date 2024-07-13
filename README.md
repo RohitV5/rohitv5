@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
