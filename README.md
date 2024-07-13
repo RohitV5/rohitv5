@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the rank of the U.S. Virgin Islands in world population.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
