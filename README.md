@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of moons of the planet Uranus.
+199 is the rank of Zambia in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
