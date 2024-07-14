@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+63 is the estimate by Archimedes in The Sand Reckoner of the total number of grains of sand that could fit into the entire cosmos.
+113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
