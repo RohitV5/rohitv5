@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
