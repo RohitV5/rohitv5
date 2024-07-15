@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000000000 is the number of base pairs in the human genome.
+255 is the largest representable integer in an unsigned byte.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
