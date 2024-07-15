@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the atomic number of seaborgium (Unilhexium Unh).
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
