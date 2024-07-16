@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
+176 is the number of verses in the longest chapter in the Bible, Psalm 119.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
