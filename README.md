@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the average thickness of the Arctic ice sheet in feet.
+3 is the number of witches in William Shakespeare's Macbeth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
