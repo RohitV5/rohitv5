@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64 is number of codons in the RNA codon table under genetic code.
+239 is the atomic mass number of the most common isotope of plutonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
