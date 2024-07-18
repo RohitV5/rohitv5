@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
