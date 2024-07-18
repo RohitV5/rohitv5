@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
