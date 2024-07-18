@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the final year a person is a teenager.
+186 is the length of the Judgment at Nuremberg measured in 186 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
