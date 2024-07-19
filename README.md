@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the medical and Alpine rescue emergency telephone number in Italy.
+38 is the number of surviving plays written by William Shakespeare.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
