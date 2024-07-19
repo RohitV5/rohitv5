@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
