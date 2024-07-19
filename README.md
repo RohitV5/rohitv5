@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the number of musical instruments specified in General MIDI.
+56 is the number of curls Shirley Temple, as a child, wore in her hair.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
