@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-142 is the number of 6-vertex planar graphs.
+176 is the rank of Vanuatu in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
