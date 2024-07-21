@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-998402801 is the number of entries of distinct astronomical objects in The Guide Star Catalog II.
+1728 is braces were first invented by Pierre Fauchard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
