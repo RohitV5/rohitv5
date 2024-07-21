@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the atomic number of an element temporarily called Unennbium.
+97 is the number of different characters that can be used with a standard English Keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
