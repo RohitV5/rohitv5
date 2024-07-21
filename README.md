@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of dots in a quincunx.
+92 is the percentage of water in watermelons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
