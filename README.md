@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+169 is the height in feet that Buddha Dordenma, a Shakyamuni Buddha statue under construction in the mountains of Bhutan, once completed, would be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
