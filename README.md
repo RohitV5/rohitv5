@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age in years that the Saguaro Cactus, found in southwestern US, must be to grow branches.
+25 is the minimum age of candidates for election to the United States House of Representatives.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
