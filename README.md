@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the maximum possible score in one turn at darts (three triple 20s).
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
