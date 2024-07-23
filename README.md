@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number of the Vault that is the starting area of Fallout 3.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
