@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
