@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-104 is the atomic number of rutherfordium.
+10000 is the gallons of saliva an average human produces in a lifetime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
