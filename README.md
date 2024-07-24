@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+451 is the temperature at which the paper in books ignites, giving the name to Ray Bradbury's novel Fahrenheit 451.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
