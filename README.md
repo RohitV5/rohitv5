@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the total number of letters in the Hebrew alphabet (22 regular letters and 5 final consonants).
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
