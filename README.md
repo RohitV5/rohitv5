@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
+5000 is the number of base pairs in the DNA of the simplest viruses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
