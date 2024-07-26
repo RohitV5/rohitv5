@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the number of films American film actor John Wayne starred in.
+118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
