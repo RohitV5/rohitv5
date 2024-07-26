@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
+1337 is the weight in pounds of the biggest pumpkin in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
