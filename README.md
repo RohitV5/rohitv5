@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-930000 is the number of words in the King James Version of the Bible.
+72 is the number of names of God, according to Kabbalah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
