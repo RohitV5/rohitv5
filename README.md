@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
+162 is total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
