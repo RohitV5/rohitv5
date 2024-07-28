@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+101 is the temperature in Fahrenheit of milk when it leaves the body of a cow.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
