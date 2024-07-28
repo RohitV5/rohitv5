@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of soldiers in The Expendables (2010 film) tactor Eric Roberts laments to his subordinates about having been killed by star Sylvester Stallone in his escape from their island.
+343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
