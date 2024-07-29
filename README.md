@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
+343 is the number of New York City Firefighters who died on September 11, 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
