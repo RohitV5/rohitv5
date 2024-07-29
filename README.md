@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the ordinal number of the coat of arms of Komi Republic in the State Heraldic Register of the Russian Federation.
+72 is the number of languages spoken at the Tower of Babylon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
