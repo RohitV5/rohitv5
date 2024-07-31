@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
