@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the number of checkers each side has at the start of a backgammon game.
+7 is the number of main stars in the constellations of the Big Dipper and Orion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
