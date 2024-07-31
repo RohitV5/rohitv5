@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
+195 is the rank of BNY Mellon Center in terms of the tallest skyscraper in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
