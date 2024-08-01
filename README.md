@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a number believed to be a magic number in nuclear physics.
+29 is the highest possible score in a hand of Cribbage or Khanhoo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
