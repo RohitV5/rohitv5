@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-386 is the number of Pokémon in the 3rd Generation National Pokédex.
+11 is the approximate periodicity of a sunspot cycle in years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
