@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the record number of singles hit by St. Louis Cardinals Jesse Burkett in 1899.
+1400000 is the number of species that have been named by the World Resources Institute.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
