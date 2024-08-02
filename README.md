@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-11 is the number of players in an American football team on the field at one time during play.
+31 is the number of musical triads (12 major, 12 minor, 4 diminished, and 3 augmented).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
