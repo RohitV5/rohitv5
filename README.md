@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
+64 is the number of classical arts listed in many Indian scriptures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
