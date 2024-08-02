@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
