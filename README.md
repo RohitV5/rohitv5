@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+58 is the minimum wind speed (mph) needed to issue a Severe Thunderstorm Warning.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
