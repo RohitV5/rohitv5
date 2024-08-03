@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
