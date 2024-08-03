@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
+6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
