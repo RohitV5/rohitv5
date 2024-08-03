@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
+155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
