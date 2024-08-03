@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
+239 is the number of chapters in the Book of Mormon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
