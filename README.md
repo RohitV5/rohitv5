@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-251 is the number of Pokémon available in Pokémon Gold and Silver is 251.
+270 is the average number of days in human pregnancy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
