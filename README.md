@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
+171 is the record number of goals scored by France at the 1998 World Cup.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
