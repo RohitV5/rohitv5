@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
+24 is the maximum number of Knight Companions in the Order of the Garter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
