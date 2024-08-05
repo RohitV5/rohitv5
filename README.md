@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
