@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
