@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the most points by a rookie in a NBA Playoff game (Philadelphia's Wilt Chamberlain, 1960).
+1337 is the number that spells "leet" in leetspeak.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
