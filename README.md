@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the HTTP status code indicating a new resource was successfully created in response to the request.
+192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
