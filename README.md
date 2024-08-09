@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
+10 is the number of kingdoms in Five Dynasties and Ten Kingdoms Period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
