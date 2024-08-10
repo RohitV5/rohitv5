@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-184 is a weight class in collegiate wrestling, 184 lb (83 kg).
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
