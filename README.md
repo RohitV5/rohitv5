@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the percentage of movies released that are Rated R.
+180 is a number that in an astrological aspect is considered to be negative in influence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
