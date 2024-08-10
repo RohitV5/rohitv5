@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the telephone number of the speaking clock for the correct time in the United Kingdom.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
