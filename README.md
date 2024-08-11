@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
