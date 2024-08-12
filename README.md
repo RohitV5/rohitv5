@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+199 is the number of hits by Ron Davis in his MLB career from 1962-1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
