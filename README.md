@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-480 is the number of hours for rocking non-stop in a rocking chair, a world record held by Dennis Easterling of Atlanta.
+173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
