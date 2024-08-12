@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-44 is the percentage of kids who watch television before they go to sleep in the US.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
