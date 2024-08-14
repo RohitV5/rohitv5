@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-364 is the total number of gifts received in the song "The Twelve Days of Christmas".
+18 is the number of holes in a stipulated round of golf.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
