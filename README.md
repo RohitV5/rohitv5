@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
