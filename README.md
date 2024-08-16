@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is the number of Nobel Prize in Literature laureates.
+135 is the height of the World's tallest thermometer in feet located in Baker, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
