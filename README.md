@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the name of a hip hop, active 1990-2004.
+78 is the number of lines that make up Metatron's Cube.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
