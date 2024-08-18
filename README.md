@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
+712 is the largest known number such that it and its 8th power have no common digits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
