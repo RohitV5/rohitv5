@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+98 is the temperature (F) of the normal body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
