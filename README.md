@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1982 is the average price for a major league baseball game ticket in 2004 in cents.
+136 is the section of the Mental Health Act 1983 (UK law) details removing a mentally ill person from a public place to a place of safety.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
