@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+181 is the rider number given to Lance Armstrong in 1999 when he won his first of seven Tour de France consecutive victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
