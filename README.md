@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90 is the number of minutes in a football (soccer) match.
+4000 is the weight in pounds that the Great White Shark can grow to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
