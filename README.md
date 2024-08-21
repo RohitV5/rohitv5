@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-152 is the number of diapers solder in a Pampers Swaddlers pack.
+172 is the rank of Iceland in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
