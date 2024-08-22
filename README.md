@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
+35 is the basic film gauge in mm most commonly used for both analog photography and motion pictures.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
