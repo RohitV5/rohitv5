@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+40 is the Eddington–Dirac number.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
