@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-87 is the number of tools in the Wenger Swiss Army Knife version XXL, listed in the Guinness Book of World Records as the world's most multi-functional penknife.
+100 is the minimum distance in yards for a Par 3 on a golf course.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
