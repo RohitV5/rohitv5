@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
+22 is the typical (minimum) number of episodes in a season for a television program broadcast on a major American network.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
