@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the minimum distance in yards for a Par 3 on a golf course.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
