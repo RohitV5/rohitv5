@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-89 is the number of units of each colour in the board game Blokus.
+67 is the highest two-digit odd number not presently designating any highway in the Interstate Highway System of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
