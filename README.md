@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is 187th Street in the Washington Heights section of Manhattan.
+120 is the maximum number of power stars a player can get in Super Mario 64 for the Nintendo 64.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
