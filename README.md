@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+3 is the number of novels or films in a trilogy and the number of interconnected works of art in a triptych.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
