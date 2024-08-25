@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the rank of Liberia in world population.
+183 is the rank of Laos in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
