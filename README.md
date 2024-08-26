@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43687 is the number of toilet related accidents in the United States in 1996.
+11 is the number of denominations of Canadian currency produced in large quantities.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
