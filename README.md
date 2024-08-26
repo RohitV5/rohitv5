@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the highest speed limit allowed in the United States between 1974 and 1986 per the National Maximum Speed Law.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
