@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
