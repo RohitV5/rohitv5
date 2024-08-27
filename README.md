@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+196 is the number of athletes that Canada had in 15 sports at the 2006 Winter Olympics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
