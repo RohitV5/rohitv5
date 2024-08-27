@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-600 is the maximum credit score considered poor, thus limiting available credit in the USA.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
