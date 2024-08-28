@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the highest signed 8 bit integer.
+214 is the Dewey Decimal Classification for Theodicy (the problem of evil).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
