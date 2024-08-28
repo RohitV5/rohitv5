@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
