@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+28 is the number of days in the shortest month of the Gregorian calendar, February (except in leap years, when there are twenty-nine).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
