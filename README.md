@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+37 is the cost in cents of the Whopper Sandwich when Burger King first introduced it in 1957.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
