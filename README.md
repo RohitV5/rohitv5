@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the approximate speed in miles per hour a penguin swims at.
+119 is a number to report children / youth at risk in France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
