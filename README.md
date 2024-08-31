@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the angle in degrees for which a rainbow appears or the critical angle.
+13 is the speed of rush hour traffic on average in kilometres per hour in London.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
