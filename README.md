@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-156 is the number of strikes a clock will strike in the course of a day.
+197 is the approximate atomic mass of Gold.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
