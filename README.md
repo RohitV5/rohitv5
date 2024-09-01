@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the number of days it takes Saturn to orbit the Sun.
+10 is the number of spacetime dimensions in some superstring theories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
