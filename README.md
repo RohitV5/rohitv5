@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
