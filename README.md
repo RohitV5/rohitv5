@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+117 is the substitute for the number 17, which is considered unlucky in Italy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
