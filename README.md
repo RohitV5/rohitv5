@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
+195 is the rank of Waco, Texas by largest city population in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
