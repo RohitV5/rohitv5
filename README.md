@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the length of an NBA court in feet.
+26 is the number of Cantons of Switzerland.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
