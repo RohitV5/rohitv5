@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
