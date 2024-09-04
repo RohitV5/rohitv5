@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-304 is the record number of wickets taken in English cricket season by Tich Freeman in 1928.
+188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
