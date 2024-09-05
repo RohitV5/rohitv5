@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the highest possible break in snooker, in the absense of fouls and refereeing errors.
+20 is the number of baby teeth in the deciduous dentition.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
