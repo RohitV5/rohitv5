@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the area code for central Illinois.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
