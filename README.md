@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the age of Mao Zedong when the People's Republic of China was established on Oct. 1, 1949.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
