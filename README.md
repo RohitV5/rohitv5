@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the atomic number of an element temporarily called Unennbium.
+199 is the number of points by Mario Lemieux in the 1988-1989 NHL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
