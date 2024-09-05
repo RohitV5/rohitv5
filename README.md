@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
+156 is the number of years that Hong Kong was under British colony rule.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
