@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the area code for central Illinois.
+239 is the number of chapters in the Book of Mormon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
