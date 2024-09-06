@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the final year a person is a teenager.
+109 is the atomic number of meitnerium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
