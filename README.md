@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
+3 is the number of sets needed to be won to win the whole match in volleyball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
