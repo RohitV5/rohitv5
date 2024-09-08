@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-360 is the number of degrees in a circle for the purpose of angular measurement.
+614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
