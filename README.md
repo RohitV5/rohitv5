@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-163 is the atomic number of an element temporarily called Unhextrium.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
