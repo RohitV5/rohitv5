@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the number of miles that Thomas Sopwith, an English aviation pioneer flew in 3 hours, 40 minutes on December 18, 1910.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
