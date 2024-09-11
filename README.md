@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-334 is the long-time highest score in Test cricket (held by Sir Donald Bradman and Mark Taylor).
+166 is the number of Warner Bros. cartoons Bugs Bunny starred in from 1940 to 1964.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
