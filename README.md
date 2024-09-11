@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the minimum number of varieties of watermelons grown in the U.S.
+201 is the HTTP status code indicating a new resource was successfully created in response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
