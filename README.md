@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+112 is the number of surat al-Ikhlas in the Qur'an.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
