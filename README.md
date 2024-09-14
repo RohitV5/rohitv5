@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+32 is the number of rays in the Japanese Rising Sun on the cover of Incubus' 2006 album Light Grenades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
