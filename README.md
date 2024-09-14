@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of outs in a regulation baseball game for each team at all adult levels.
+6000000000000000000 is the number of transistor produced worldwide in 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
