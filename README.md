@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
+23 is the number of chromosomes normal human sex cells have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
