@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150000000 is the number of items held in the British Library.
+161 is the number of songs Pink Floyd recorded.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
