@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-104 is the atomic number of rutherfordium.
+72 is the number of disciples of Confucius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
