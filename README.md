@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is a number to report children / youth at risk in France.
+133 is the number of career touchdowns from 1983 - 1996 of Canadian Football League quarterback Danny Barrett.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
