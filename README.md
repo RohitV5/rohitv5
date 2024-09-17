@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of days in the months April, June, September and November (and in unusual circumstances February).
+187 is a signature wrestling move by wrestler New Jack (diving elbow drop while holding a steel chair underneath his arm).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
