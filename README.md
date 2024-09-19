@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is the atomic number of the yet-to-be-discovered element unbiquadium.
+136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
