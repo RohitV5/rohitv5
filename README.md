@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the number of surat Quraysh in the Qur'an.
+92 is the number of pounds of sugar the average American child consumes per year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
