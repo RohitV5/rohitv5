@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
