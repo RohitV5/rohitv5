@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of episodes that the The Practice ran on ABC from 1997 to 2004.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
