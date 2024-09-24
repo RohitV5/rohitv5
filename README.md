@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
+168 is the number of episodes that the The Mary Tyler Moore Show ran on CBS from 1970 to 1977.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
