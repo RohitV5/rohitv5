@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+251 is the last and most powerful prime mover (engine) designed and built by the American Locomotive Company (ALCO).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
