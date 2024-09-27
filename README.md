@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the years of marriage until the diamond wedding anniversary.
+538 is the total number of votes in the Electoral College of the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
