@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-57 is the number of people at 20th Century Fox Studios died amid rioting and suicide.
+3 is the number of consecutive successful attempts in a hat trick in sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
