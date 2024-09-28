@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+714 is the number of home runs Babe Ruth scored in his career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
