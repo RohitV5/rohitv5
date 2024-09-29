@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the miles of Tahoe Rim Trail, a long-distance hiking trail around Lake Tahoe.
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
