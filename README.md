@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the electricity emergency telephone number in Egypt.
+54 is the score in golf colloquially referred to as a perfect round.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
