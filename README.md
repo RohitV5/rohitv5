@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
+164 is the number of episodes that the TV show The Adventures of Rin Tin Tin ran on ABC from 1954 to 1959.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
