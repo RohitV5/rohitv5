@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of days it took to form the 2007 Belgian government.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
