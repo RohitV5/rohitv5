@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
