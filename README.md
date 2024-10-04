@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
