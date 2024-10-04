@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the number of games that former German soccer referree Gerd Hennig refereed between 1964 and 1982.
+12 is the number of basic hues in the color wheel (3 primary colors (red, yellow, blue), 3 secondary colors (orange, green & purple) and 6 tertiary colors).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
