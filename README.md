@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-295 is the numerical designation of seven circumfrental or half-circumfrental routes of Interstate 95 in the United States.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
