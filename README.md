@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1.16e+77 is the number of keys in the AES 256 bit keyspace (symmetric cipher).
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
