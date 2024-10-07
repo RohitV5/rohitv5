@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-193 is the number of member states of the United Nations as of 2011.
+20000000000 is the approximate number of coconuts produced worldwide each year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
