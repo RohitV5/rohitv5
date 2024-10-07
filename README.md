@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the code for malignant neoplasm of the colon in the International Statistical Classification of Diseases and Related Health Problems.
+65 is the minimum grade required to pass an exam, or class, in many areas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
