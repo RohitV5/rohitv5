@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+418 is the error code for "I'm a teapot" in the Hyper Text Coffee Pot Control Protocol.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
