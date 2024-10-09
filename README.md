@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the code for international direct dial phone calls to Australia.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
