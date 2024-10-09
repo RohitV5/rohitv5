@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-538 is the total number of votes in the Electoral College of the United States.
+3 is the number of points received for a successful field goal in both American football and Canadian football.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
