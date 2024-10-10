@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is the number of the first check for new checking account in the US.
+500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
