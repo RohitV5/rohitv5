@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the rank of Highway to Hell (1979) by AC/DC on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
