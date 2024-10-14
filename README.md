@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the number of square inches in a square foot.
+202 is the area code assigned to Washington D.C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
