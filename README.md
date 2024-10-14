@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the TV series Third Watch ran on NBC from 1999 to 2005 with 132 episodes.
+181 is the number of 181 colleges, universities and other higher education institutions in Texas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
