@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-153 is the frequency in kHz of of the longwave transmitters Donebach, Ingøy, Braşov, and Kenadsa.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
