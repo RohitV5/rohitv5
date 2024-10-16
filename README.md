@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
+91 is the amount of money one has if one has one coin of each U.S. denomination less than a dollar (penny, nickel, dime, quarter, half dollar) in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
