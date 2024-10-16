@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-123 is the atomic number of the yet-to-be-discovered element unbitrium.
+205 is the world speed record (mph) of a car on ice.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
