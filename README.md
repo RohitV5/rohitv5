@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is one of the first three area codes created in California.
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
