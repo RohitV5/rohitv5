@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the atomic number of lead.
+110 is the atomic number of darmstadtium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
