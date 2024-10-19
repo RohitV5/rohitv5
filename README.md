@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+98 is the highest jersey number allowed in the National Hockey League (as 99 was retired by the entire league to honor Wayne Gretzky).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
