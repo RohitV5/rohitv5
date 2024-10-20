@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-60 is the maximum number of marbles (game pieces) in Chinese checkers.
+207 is the area code for the US state of Maine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
