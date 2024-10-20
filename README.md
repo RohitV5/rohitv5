@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2055001 is the number of people employed by Wal-mart in 2007.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
