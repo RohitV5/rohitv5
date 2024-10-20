@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+132 is the number of runs Pakistan was shot out o hand over the World cup trophy to a strong australian team in the Cricket World Cup 1999.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
