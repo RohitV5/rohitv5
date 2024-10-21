@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the atomic number of an element temporarily called Unsepthexium.
+180 is the number of litres of saliva in one day that cattle can produce.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
