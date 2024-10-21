@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-102 is the atomic number of nobelium, an actinide.
+101 is the HTTP status code indicating that a client should switch protocols.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
