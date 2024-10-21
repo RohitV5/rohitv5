@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
+17 is the number of flames emanating from the grenade cap-badge of the Grenadier Guards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
