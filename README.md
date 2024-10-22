@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the Saros number of the solar eclipse series which began on June 6, 1472 and will end on July 11, 2716.
+1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
