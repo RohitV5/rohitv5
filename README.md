@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of different characters that can be used with a standard English Keyboard.
+3 is the cost in cents to make a $1 bill in the United States.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
