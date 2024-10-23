@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-205726 is the number of gambling slots in Nevada in 1999, which was one slot for every 10 people residing there.
+214 is the number of Chinese radicals for the writing of Chinese characters according to the 1716 Kangxi Dictionary.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
