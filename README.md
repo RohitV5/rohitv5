@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+300 is a perfect score in bowling, achieved by rolling strikes in all ten frames (a total of twelve strikes).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
