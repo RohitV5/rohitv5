@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the weight in pounds of the biggest pumpkin in the world.
+198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
