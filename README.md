@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of laws of cricket.
+100000000000 is the number of neurons in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
