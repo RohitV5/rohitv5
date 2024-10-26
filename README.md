@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-162 is total number of baseball games each team plays during a regular season in Major League Baseball.
+1e+120 is the Shannon number, an estimation of the game-tree complexity of chess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
