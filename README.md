@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the rank of Isle of Man in world population.
+119 is a number to report children / youth at risk in France.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
