@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6909 is the number of estimate for the linguistic diversity of living human languages or dialects.
+136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
