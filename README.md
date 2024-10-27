@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-136 is the hottest temperature ever recorded in Fahrenheits at Aziziya, Libya in September 1922.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
