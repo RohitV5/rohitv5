@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
+46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
