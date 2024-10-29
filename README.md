@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the code for character "Õ" in codepages such as ISO-8859-1 and UTF-8.
+110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
