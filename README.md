@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the room in Stephen King's novel "The Shining", that plays a central part in the story as it is haunted.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
