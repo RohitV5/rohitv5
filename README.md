@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2380 is kg of plasticine used for the movie "Chicken Run", the most plasticine used in an animated movie.
+161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
