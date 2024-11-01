@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the rank of Guam in world population.
+112 is the atomic number of the element copernicium (formerly called ununbium).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
