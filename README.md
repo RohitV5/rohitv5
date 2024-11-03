@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is a common price ending in psychological pricing.
+12 is the largest number that has just one syllable.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
