@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
