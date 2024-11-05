@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
+600 is the advertised number of miles that NASCAR runs in the Coca-Cola 600, the longest race on any of the NASCAR circuits.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
