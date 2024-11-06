@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+29 is the number of Knuts in one Sickle in the fictional currency in the Harry Potter novels.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
