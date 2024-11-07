@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the bytes of memory of the Atari 2600 console.
+30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
