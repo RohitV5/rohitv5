@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the minimum distance in yards for a Par 3 on a golf course.
+1e+36 is the ratio of the electromagnetic to the gravitational forces between two protons.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
