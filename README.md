@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+155 is the number of performances Ivanhoe, the romantic opera that opened in January 31, 1891, ran for.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
