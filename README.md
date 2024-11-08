@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the estimation of the game-tree complexity in the game of Go.
+199 is the number of games pitched by MLB pitcher Art Herring from 1929-1947.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
