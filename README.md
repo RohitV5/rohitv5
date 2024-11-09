@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of human blood groups (A, B, O, AB).
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
