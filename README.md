@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-211 is the SMTP status code system status.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
