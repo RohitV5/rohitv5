@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the first magic number in physics.
+104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
