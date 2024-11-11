@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the maximal number of horses in one row for carriage.
+6000000 is the number of beavers in Canada before the fur trade started.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
