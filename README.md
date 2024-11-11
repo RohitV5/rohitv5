@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+2 is the number of polynucleotide strands in a DNA double helix.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
