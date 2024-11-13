@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000 is the number of colors that can be distinguished by the trichromatic color vision of the human eye.
+28 is the number of Chinese constellations, "Xiu" or "mansions" (a literal translation), equivalent to the 12 western zodiac constellations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
