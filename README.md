@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the number of lines that make up Metatron's Cube.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
