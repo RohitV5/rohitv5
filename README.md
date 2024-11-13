@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the height of the World's tallest thermometer in feet located in Baker, California.
+8e+60 is the number of Planck time intervals since the Big Bang.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
