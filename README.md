@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the traffic emergency telephone number in China.
+95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
