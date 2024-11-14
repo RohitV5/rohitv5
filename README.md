@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
+28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
