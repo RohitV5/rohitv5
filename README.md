@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-225 is the longest distance in miles a deepwater lobster has been recorded to travel.
+32 is the number of rays in the Japanese Rising Sun on the cover of Incubus' 2006 album Light Grenades.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
