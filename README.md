@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the atomic number of platinum.
+128 is the bytes of memory of the Atari 2600 console.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
