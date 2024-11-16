@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22 is the typical length in minutes of a half hour sitcom not including commercials.
+242 is the area code of The Bahamas located in the North West Atlantic Ocean.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
