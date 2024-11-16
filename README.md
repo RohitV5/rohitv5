@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1600000 is the number of people employed by the Indian railway system in India.
+39 is the traditional number of times citizens of Ancient Rome hit their slaves when beating them, referred to as "Forty save one".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
