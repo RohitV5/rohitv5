@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the position that Tom Brady was picked in the 2000 NFL draft.
+2147483647 is the largest number which can fit into a signed (two's complement) 32-bit integer on a computer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
