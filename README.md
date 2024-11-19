@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+41 is the number of members in the U.S. Senate needed to defeat a cloture vote and sustain a filibuster indefinitely.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
