@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+39 is the number of books in the Old Testament according to Protestant canon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
