@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the number of chapter in the Quran, the holy book of Islam contains 114.
+40 is the number of points that a Premier League team needs to avoid relegation in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
