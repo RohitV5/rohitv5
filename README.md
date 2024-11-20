@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the Calling code for Zaire.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
