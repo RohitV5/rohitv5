@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-37 is the normal human body temperature in degrees Celsius.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
