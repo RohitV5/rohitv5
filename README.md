@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
+14 is the maximum number of electrons that can fit in an f sublevel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
