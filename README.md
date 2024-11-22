@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-666 is the number of the devil.
+151 is the total number of Pokémon in the original set, counting Mewtwo and Mew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
