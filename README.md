@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the atomic number of the element roentgenium (Rg).
+12 is the number of ounces in a troy pound (used for precious metals).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
