@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is the number of stories of both towers of the former World Trade Center in New York.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
