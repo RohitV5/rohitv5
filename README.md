@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125 is the atomic number of the yet-to-be-discovered element Unbipentium.
+285 is the total number of Rules of Acquisition in Star Trek.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
