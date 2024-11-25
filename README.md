@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+169 is the number of nonequivalent starting hands in the Texas hold "em.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
