@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000000000 is the of rate of hyperinflation in Zimbabwe by February 2009.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
