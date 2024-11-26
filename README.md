@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+18 is the number of wheels on the most common type of North American tractor-trailer truck, which are hence often called 18-wheelers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
