@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the number of players that competed in badminton at the 2008 Summer Olympics in Beijing, China.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
