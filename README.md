@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the number that appears on the back of the US $5 dollar bill (in the bushes at the base of the Lincoln Memorial).
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
