@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the number of the episoodes that Hogan's Heroes ran on CBS from 1965 to 1971.
+24 is the number of a car in the NASCAR Sprint Cup Series owned by Hendrick Motorsports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
