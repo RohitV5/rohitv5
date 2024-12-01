@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of keys in any standard digital telephone (1 through 9, 0, * and #).
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
