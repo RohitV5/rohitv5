@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is the number of the California Penal Code section describing murder.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
