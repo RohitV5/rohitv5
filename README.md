@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
+38 is the number of games that each team in the current English Premiership, the top division in English Association Football, plays in a season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
