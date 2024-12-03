@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+60 is the number of Planck time intervals since the Big Bang.
+73 is the favorite number of The Big Bang Theory's character Sheldon Cooper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
