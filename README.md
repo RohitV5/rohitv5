@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the length in miles of the The Coast to Coast Walk in England.
+101 is the number of the first check for new checking account in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
