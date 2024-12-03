@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+198 is the number of sacks by Reggie White in his NFL career from 1985-2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
