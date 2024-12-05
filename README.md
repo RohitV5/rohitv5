@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the port number of the IDENT Internet protocol that helps identify the user of a particular TCP connection.
+40 is the customary number of hours in a regular workweek in some Western countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
