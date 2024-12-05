@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the record number of goals scored by France at the 1998 World Cup.
+231 is the number of cubic inches in a U.S. liquid gallon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
