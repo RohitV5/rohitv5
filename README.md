@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is a common police code denoting a suspicious person.
+128 is the number of characters in the ASCII character set.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
