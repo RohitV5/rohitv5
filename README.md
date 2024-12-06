@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-28 is the average number of minutes in a day that kids in the U.S. between the ages of 2 - 8 spend coloring.
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
