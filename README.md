@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the number of pence in a pound in the British currency until 1971.
+147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
