@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000000000000 is the number of estimated ants on Earth alive at any one time.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
