@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-19 is the number of years in 235 lunations.
+111 is the lowest positive integer requiring six syllables to name in American English, or seven syllables (including "and") in Canadian and British English.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
