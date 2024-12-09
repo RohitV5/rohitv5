@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the standard number of days in the school year in most areas of the USA.
+190 is the number of member states of the United Nations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
