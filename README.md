@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-0 is the coldest possible temperature old the Kelvin scale.
+183 is the rank of Laos in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
