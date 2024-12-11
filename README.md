@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is a police term for a murder or homicide.
+243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
