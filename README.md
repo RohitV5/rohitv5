@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7e+22 is the number of stars within range of telescopes (as of 2003).
+198 is the number of places listed on the United States National Register of Historic Places in Los Angeles.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
