@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the miles long of the Hetch Hetchy Aqueduct in Yosemite National Park.
+10000000000000000000 is the estimated insect population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
