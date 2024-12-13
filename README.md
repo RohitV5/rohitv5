@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
+81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
