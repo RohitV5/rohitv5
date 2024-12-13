@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+108 is the number of suitors coveting Penelope, wife of Odysseus in Homer's Odyssey.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
