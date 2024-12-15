@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the price in cents per acre the USA bought Alaska from Russia.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
