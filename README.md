@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-328 is the weight in pounds of an ovarian cyst removed from a woman in Galveston, Texas, in 1905, a world record.
+113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
