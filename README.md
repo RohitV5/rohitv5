@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is a standard length of playing cards in mm.
+128 is the bytes of memory of the Atari 2600 console.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
