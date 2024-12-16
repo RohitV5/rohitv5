@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the atomic number of the chemical element unbibium.
+490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
