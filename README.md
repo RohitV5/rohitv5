@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-366 is the number of days in a leap year.
+211 is the SMTP status code system status.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
