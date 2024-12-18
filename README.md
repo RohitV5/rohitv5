@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the rank of the Anthology 1961-1977 (1992) by Curtis Mayfield and The Impressions on Rolling Stone magazine's list of the 500 greatest albums of all time.
+139 is the number of episodes of the TV series 3rd Rock from the Sun that ran on NBC from 1996 to 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
