@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+179 is the rank of the Anthology 1961-1977 (1992) by Curtis Mayfield and The Impressions on Rolling Stone magazine's list of the 500 greatest albums of all time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
