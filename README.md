@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the speed in miles per hour at which Canadian race car driver Francis Affleck was driving when his car rolled over and died on February 7, 1985.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
