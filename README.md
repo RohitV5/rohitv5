@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is a common price ending in psychological pricing.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
