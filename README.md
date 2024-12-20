@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+167 is the branch spread in feet of Santa Barbara's Moreton Bay Fig Tree in Santa Barbara, California, which is believed to be the largest Ficus macrophylla in the United States).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
