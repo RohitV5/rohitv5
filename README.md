@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the heaviest stable isotope of any element (lead).
+132 is the Opus number of one of Beethoven's greatest works.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
