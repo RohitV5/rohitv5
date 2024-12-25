@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the code for international direct dial phone calls to Australia.
+2 is the price in cents per acre the USA bought Alaska from Russia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
