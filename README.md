@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the number of 181 colleges, universities and other higher education institutions in Texas.
+950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
