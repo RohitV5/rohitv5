@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-273 is the death toll of the air crash of American Airlines Flight 191.
+27 is the current number of Amendments to the United States Constitution (2012 February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
