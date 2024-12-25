@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-231 is the number of cubic inches in a U.S. liquid gallon.
+47 is the number of phonemes in English phonology in Received Pronunciation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
