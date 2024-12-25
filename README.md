@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-490 is the number of times Jesus told Peter to forgive his brother in the Gospel of Matthew.
+65 is the traditional age for retirement in the United Kingdom, Germany and other countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
