@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-71 is the number of different characters that can be used with a standard English Keyboard, excluding uppercase letters.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
