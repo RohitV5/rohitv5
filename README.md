@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
+66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
