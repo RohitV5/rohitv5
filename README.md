@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the feet above sea level at Turriff in Aberdeenshire, Scotland.
+25 is the number of fruits that a grapefruit cluster can have up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
