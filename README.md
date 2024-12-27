@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the miles in length of the Sussex Border Path a footpath in southern England connecting with Thorney Island to Rye.
+1000000000000 is the number of bacteria on the surface of the human body.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
