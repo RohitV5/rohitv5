@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the number of flames emanating from the grenade cap-badge of the Grenadier Guards.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
