@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-930000 is the number of words in the King James Version of the Bible.
+135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
