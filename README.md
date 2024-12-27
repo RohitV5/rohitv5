@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+40 is the Eddington–Dirac number.
+1300 is the number of babies born prematurely in the USA every day.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
