@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
+97 is the number of leap days that the Gregorian calendar contains in its cycle of 400 years.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
