@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the pairs of ribs normally in the human body.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
