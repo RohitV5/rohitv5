@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the number that spells "leet" in leetspeak.
+15 is the number of letters in the words "uncopyrightable", "dermatoglyphics", "misconjugatedly", and "hydropneumatics", the longest English words with no repeat letters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
