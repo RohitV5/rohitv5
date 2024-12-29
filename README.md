@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of countries in the European Union (as of August 2011).
+175 is the number of touchdowns by Former NFL running back Emmitt Smith, ranking him second to Jerry Rice's 207.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
