@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the length in miles of a train of boxcars that can be filled from recycled paper in the USA every day.
+155 is the number of episodes the TV series Sea Hunt ran in syndication from 1958 to 1961.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
