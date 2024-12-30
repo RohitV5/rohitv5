@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+108 is the number of stitches in an official Major League Baseball baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
