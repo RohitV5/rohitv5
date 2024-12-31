@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is distinct solutions of the Soma cube puzzle.
+2 is the first magic number in physics.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
