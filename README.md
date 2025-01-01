@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the total number of gifts in the song The Twelve Days of Christmas.
+209 is the basketball record for most three pointers in a row.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
