@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is a gross (a dozen dozen).
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
