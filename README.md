@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is steps to the top of the Cape May Lighthouse in Cape May, New Jersey.
+1e+150 is the estimation of the game-tree complexity of xiangqi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
