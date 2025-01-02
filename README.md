@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-911 is the number of days after September 11th that the Madrid Attack took place.
+11 is the possible age of the youngest elected pope, Benedict IX.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
