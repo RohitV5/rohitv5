@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
+64 is the number of Braille characters in the old 6-dot system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
