@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the cartridge version of 35mm photographic film, used widely in still photogaphy.
+10 is the number of fingers on a pair of human hands.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
