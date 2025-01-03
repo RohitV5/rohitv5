@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the number of episodes in the original airing of Futurama.
+15 is the number of minutes carbon monoxide can kill a person in.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
