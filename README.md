@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the most points by a rookie in a NBA Playoff game (Philadelphia's Wilt Chamberlain, 1960).
+3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
