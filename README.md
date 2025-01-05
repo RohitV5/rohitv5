@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1600000 is the number of people employed by the Indian railway system in India.
+15 is the number of minutes in one quarter of an hour.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
