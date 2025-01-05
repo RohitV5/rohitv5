@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the area code of The Bahamas located in the North West Atlantic Ocean.
+137 is a radioactive isotope of Caesium formed by nuclear fission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
