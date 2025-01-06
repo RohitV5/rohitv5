@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+28 is the number of days the curing time of concrete is classically considered to be.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
