@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-26 is the number of episodes in a television program each year (usually).
+195 is the number of episodes of Matlock ran on NBC from 1986-1992 and on ABC from 1992-1995.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
