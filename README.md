@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000 is the number of thunderstorms that occur in the USA every year, of which 10% are classified as severe.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
