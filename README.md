@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3000000000 is the number of base pairs in the human genome.
+174 is the atomic number of an element temporarily called Unseptquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
