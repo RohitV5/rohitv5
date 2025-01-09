@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is a common limit for the characters per line in computing (derived from the number of columns in IBM cards).
+1750000 is the number of entries in the freedb database of CD track listings as of June 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
