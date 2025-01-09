@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+11 is the number of players on a soccer team on the field at a time as well as in a cricket team.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
