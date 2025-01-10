@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the number of different ways to bet on a roulette wheel.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
