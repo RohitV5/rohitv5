@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the number of episodes of Ironside that ran on NBC from 1967 to 1975 with 199 episodes.
+729 is the number of times a philosopher's pleasure is greater than a tyrant's pleasure according to Plato in the Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
