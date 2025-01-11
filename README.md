@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of spots (or pips, circular patches or pits) on a pair of standard six-sided dice.
+139 is the number of episodes of the TV series CHiPs that ran on NBC from 1977 to 1983.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
