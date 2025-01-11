@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the maximum speed of analog data transmission over a POTS in the 20th century measured in kbit/s.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
