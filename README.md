@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+199 is the rank of Flash Light (1977) by Parliament on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
