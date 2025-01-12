@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-45000000 is the number of turkeys Americans eat at Thanksgiving annually.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
