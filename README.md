@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+83 is the number of fundamental particles in the observable universe.
+122 is the age of Jeanne Calment when she died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
