@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
