@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40000000 is the number of times lightning hits the ground 40 million times a year in the United States.
+45 is the sapphire wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
