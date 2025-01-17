@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the rank of Highway to Hell (1979) by AC/DC on Rolling Stone magazine's list of the 500 Greatest Albums of All Time.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
