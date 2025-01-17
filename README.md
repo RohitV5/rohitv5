@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-119 is a number to report children / youth at risk in France.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
