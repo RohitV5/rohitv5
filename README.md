@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-128 is the atomic number of unbioctium, an element yet to be discovered.
+216 is the ISO's standard for paper sizes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
