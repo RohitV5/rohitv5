@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the atomic number of a recently discovered element temporarily called ununseptium.
+27 is the current number of Amendments to the United States Constitution (2012 February).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
