@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the name of a community of and for open source developers, created by Red Hat.
+203 is the HTTP status code indicating partial information.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
