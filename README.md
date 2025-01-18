@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the length in miles of the New Orleans and Northeastern Railroad.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
