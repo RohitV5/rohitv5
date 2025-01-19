@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000000000000 is the number of bacteria on the surface of the human body.
+16 is the minimum age that one can drop out of school in most states of the US (however, restrictions apply and vary depending on state).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
