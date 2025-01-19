@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-111 is the atomic number of the element roentgenium (Rg).
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
