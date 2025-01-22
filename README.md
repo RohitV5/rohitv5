@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1700 is the weight in pounds that the Kodiak bear can grow up to, a native of Alaska and one of the largest bears.
+199 is the position that Tom Brady was picked in the 2000 NFL draft.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
