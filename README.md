@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8674 is the number of unique words in the Hebrew Bible.
+148 is the number of episodes of the TV series The Fresh Prince of Bel-Air on NBC from 1990 to 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
