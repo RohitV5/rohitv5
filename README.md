@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the rank of American Samoa in world population.
+134 is the number of episodes of the TV series Xena Warrior Princess.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
