@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the number of common administrative grouping unit of homesteads in Northern Europe and Great Britain.
+432 is three-dozen sets of a dozen, making it three gross.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
