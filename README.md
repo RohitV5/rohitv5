@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
+120 is the telephone number "to report a car breakdown on the highway in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
