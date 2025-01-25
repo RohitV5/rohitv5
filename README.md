@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
