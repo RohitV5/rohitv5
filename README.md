@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the record in miles per hour of John White's shot in squash.
+1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
