@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
+104 is the number of Corinthian columns in the Temple of Olympian Zeus, the largest temple ever built in Greece.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
