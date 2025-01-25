@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
+6 is the standard length (year) of a term in office for a United States senator.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
