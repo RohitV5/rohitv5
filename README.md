@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+40 is the number of thieves in Ali Baba and the Forty Thieves and in Ali Shar and Zumurrud, from Thousand and One Nights.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
