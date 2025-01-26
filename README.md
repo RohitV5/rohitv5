@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-15 is the legal age for sexual intercourse in many countries.
+156 is the number of years that Hong Kong was under British colony rule.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
