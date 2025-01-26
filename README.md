@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the percentage of employees in the USA who eat lunch and work at the same time.
+440 is the standard frequency in hertz to which most orchestras tune the pitch A above middle C.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
