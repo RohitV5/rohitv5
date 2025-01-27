@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the intelligence Agency telephone number in Iran.
+200 is the minimum number of varieties of watermelons grown in the U.S.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
