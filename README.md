@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-493 is the number of Pokémon species, from the first set through the fourth generation as of August 2009.
+40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
