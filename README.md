@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is 'the least random number' as described at MIT, according to hackers' lore.
+3585 is the depth in metres of the deepest mine in the world, the East Rand mine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
