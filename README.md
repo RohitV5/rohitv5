@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is the atomic number of an element temporarily called Unennunium.
+172 is the rank of Iceland in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
