@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the number of thieves in Ali Baba and the Forty Thieves and in Ali Shar and Zumurrud, from Thousand and One Nights.
+184 is the distance in light years to Eta Aquarii,a star in the constellation Aquarius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
