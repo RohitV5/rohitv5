@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
+183 is the number of runs scored by former cricket player Sourav Ganguly in the 1999 Cricket World Cup, second highest in World Cup history, and highest by an Indian in the tournament.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
