@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
+60000000000000000000 is the permutations of a 10-character password on a 95-character set found on standard computer keyboards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
