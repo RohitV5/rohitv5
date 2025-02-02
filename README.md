@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-96 is the rating of Skyrim on metacritic.com.
+199 is travis Pastrana's number for dirtbiking and rally car racing.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
