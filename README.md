@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+195 is the distance off the coast of Malta that the ocean liner RMS Franconia was sunk by German torpedoes in 1916.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
