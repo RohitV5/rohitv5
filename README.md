@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the standard size of drum in US gallons.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
