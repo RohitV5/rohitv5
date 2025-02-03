@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the number of phonemes in English phonology in Received Pronunciation.
+191 is the atomic number of an element temporarily called Unennunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
