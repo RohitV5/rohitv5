@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the single-season home run record in baseball set by Barry Bonds in 2001.
+175 is the number of weeks that professional golfer David Toms spent in the top-10 of the Official World Golf Rankings between 2001 and 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
