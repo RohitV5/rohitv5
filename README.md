@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the number of pieces the body of Osiris was torn into by his fratricidal brother Set.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
