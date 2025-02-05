@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
+46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
