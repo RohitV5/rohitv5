@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
+1000 is the number of origami cranes to fold to be granted a wish by a crane, according to an ancient Japanese legend.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
