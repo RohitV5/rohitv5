@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-121 is the number for voicemail for mobile phones on the Vodafone network.
+110 is a percentage in the expression "To give 110%", meaning to give a little more effort than one's maximum effort.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
