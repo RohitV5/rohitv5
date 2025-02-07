@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-402000000 is the number of native speakers of English.
+168 is the number of home runs that José Hernández hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
