@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the atomic number of the element copernicium (formerly called ununbium).
+15 is the number of balls in the eight ball variant of billiards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
