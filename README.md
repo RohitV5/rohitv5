@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6800 is the approximate number of languages in the world.
+6 is the number of basic holes or keys on most woodwind instruments.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
