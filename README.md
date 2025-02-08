@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-189 is the rank of Stayin' Alive (1977) by the Bee Gees on Rolling Stone magazine's list of The 500 Greatest Songs of All Time.
+56000000000 is the number of web pages indexed by Google as of 2010.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
