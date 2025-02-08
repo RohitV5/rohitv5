@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-124 is a stable isotope of tellurium.
+72 is the number of languages spoken at the Tower of Babylon.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
