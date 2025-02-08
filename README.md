@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-511 is the number of collaborators mathematician Paul Erdős had.
+187 is 187th Street in the Washington Heights section of Manhattan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
