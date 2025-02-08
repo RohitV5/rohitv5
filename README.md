@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of basic hues in the color wheel (3 primary colors (red, yellow, blue), 3 secondary colors (orange, green & purple) and 6 tertiary colors).
+227 is the number of days Pi Patel was at sea in the popular novel, Life of Pi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
