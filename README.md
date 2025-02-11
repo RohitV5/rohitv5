@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
+171 is the rank of Bahamas in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
