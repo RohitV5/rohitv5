@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
+79 is the record for cumulative weeks at #1 on the Billboard charts, held by Elvis Presley.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
