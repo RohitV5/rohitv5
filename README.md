@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is a standard length of playing cards in mm.
+69 is the atomic number of thulium, a lanthanide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
