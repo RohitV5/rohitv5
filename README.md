@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-122 is the fire emergency telephone number in Austria.
+210 is the world speed record (km/h) for a mountain bike on a ski slope.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
