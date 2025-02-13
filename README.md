@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
