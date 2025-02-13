@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4200 is the number of standard size of a legion in the Roman Republic.
+80 is the length (years) of the Eighty Years' War (1568–1648).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
