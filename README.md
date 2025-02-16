@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-168 is the nubmer of performances that A Day in Hollywood / A Night in the Ukraine ran for.
+165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
