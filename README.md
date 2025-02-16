@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+1729 is the smallest number representable in two different ways as a sum of two positive cubes, as Ramanujan stated on the spot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
