@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the number of counties in the state of Georgia.
+75 is the age limit for Canadian senators.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
