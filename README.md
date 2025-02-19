@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267 is the number of groups of order 64.
+139 is the all-time record number of rugby union international appearances made by Australia scrum-half George Gregan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
