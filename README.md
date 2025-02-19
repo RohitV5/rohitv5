@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-24 is the number of bits a computer needs to represent falseColor images (for a maximum of 16,777,216 colours).
+41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
