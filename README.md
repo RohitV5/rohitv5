@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the number of fingers on a pair of human hands.
+361 is the number of positions on a standard 19 x 19 Go board.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
