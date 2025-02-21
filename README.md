@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1362310155 is the total number of items of mail that went through the Canadian postal system in 1950.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
