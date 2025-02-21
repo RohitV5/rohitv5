@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+199 is the record of strikeouts in the 2007 MLB season, held by Ryan Howard of the Philadelphia Phillies.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
