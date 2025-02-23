@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the number of polynucleotide strands in a DNA double helix.
+190 is the rank of Uruguay in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
