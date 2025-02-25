@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58 is the number of usable cells on a Hexxagon game board.
+195 is the detainee number of the Mohammad Al Rahman Al Shumrani at Guantanamo Bay.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
