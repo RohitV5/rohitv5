@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-127 is the highest signed 8 bit integer.
+64 is number of golden disks in the myth of the Tower of Hanoi.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
