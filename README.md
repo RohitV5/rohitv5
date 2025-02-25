@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-199 is the position that Tom Brady was picked in the 2000 NFL draft.
+72000000000000000 is the number of different possible keys in the obsolete 56 bit DES symmetric cipher.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
