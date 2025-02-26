@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the number of permanent members with veto power on the United Nations Security Council.
+43687 is the number of toilet related accidents in the United States in 1996.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
