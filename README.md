@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the number of states in the United States of America.
+212 is the boiling point of water at sea level in Fahrenheit degrees.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
