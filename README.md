@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-117 is the serial number of protagonist John from the Halo Series.
+4 is the number of strings on a violin, a viola, a cello, double bass, a cuatro and a ukulele, and the number of string pairs on a mandolin.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
