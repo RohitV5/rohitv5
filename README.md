@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+173 is years it takes for all the water in Lake Superior to be changed.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
