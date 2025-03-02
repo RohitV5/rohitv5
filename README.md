@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the traditional number of years in a jubilee period.
+1e+21 is the number of grains of sand on all the world's beaches put together.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
