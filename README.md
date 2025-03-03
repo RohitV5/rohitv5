@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-10 is the Number of dots in a tetractys.
+124 is the rank of the Palestinian territories in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
