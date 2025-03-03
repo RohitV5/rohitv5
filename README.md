@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the atomic number of unbihexium, an element that has not yet been discovered.
+158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
