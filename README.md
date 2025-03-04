@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-42 is the number of gallons that one barrel of petroleum holds.
+3 is the number of words or phrases in a Tripartite motto.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
