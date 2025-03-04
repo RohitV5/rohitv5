@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the number of variations in Bach's Goldberg Variations.
+4 is the number of legs most furniture has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
