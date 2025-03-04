@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
+132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
