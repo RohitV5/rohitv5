@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-75 is the age limit for Canadian senators.
+39 is the number of mentions of work or labor in the Torah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
