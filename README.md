@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the length in miles of the Adda River in Italy.
+101 is the number of the Vault that is the starting area of Fallout 3.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
