@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the minimum age for United States senators.
+525 is the number of scan lines in the NTSC television standard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
