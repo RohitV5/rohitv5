@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-536 is the number of ways to arrange the pieces of the stomachion puzzle into a square, not counting rotation or reflection.
+29 is the number of cups of milk needed to make one pound of butter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
