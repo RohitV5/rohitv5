@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
+201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
