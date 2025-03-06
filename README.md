@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is is the atomic number of mendelevium, an actinide.
+1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
