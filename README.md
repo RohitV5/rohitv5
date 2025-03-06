@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.4e+38 is the number of different possible keys in the AES 128-bit key space (symmetric cipher).
+168 is the number of episodes that Barney Miller ran on ABC from 1975 to 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
