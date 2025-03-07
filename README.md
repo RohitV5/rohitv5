@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-90 is the number of minutes in a football (soccer) match.
+84 is the code for international direct dial phone calls to Vietnam.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
