@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-227 is the highest score ever in the Eurovision Song Contest, achieved by Katrina and the Waves of the UK in 1997, before the Semi-final system was introduced in 2004.
+136 is the number of episodes of the TV series That Girl ran on ABC from 1966 to 1971.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
