@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+140 is the Asaṃkhyeya, a Buddhist name for the number 10^{140}.
+52 is the number of white keys (notes in the C major scale).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
