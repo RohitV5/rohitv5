@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is times Muslims pray to Allah a day.
+31 is the number of flavors of Baskin-Robbins ice cream.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
