@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-216 is the number of stitches on a baseball.
+6 is the number of feet below ground level a coffin is traditionally buried.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
