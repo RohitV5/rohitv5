@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the freezing point of water at sea level in degrees Fahrenheit.
+190 is the rank of Uruguay in population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
