@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-139 is the margin in St Kilda's win over the Brisbane Lions in the last round of the 2005 season in the Australian Football League.
+24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
