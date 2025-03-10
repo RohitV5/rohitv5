@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+32 is the freezing point of water at sea level in degrees Fahrenheit.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
