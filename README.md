@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
+555 is the number of seats of the airliner A380-800.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
