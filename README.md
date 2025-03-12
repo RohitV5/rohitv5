@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of New York City Firefighters who died on September 11, 2001.
+168 is the number of episodes that the The Mary Tyler Moore Show ran on CBS from 1970 to 1977.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
