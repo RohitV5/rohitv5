@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
+165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
