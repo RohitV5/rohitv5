@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
+125000 is the number of average strands of hair in the human head.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
