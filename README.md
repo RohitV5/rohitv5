@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-217 is the area code for central Illinois.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
