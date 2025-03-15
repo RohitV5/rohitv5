@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+5880000 is the number of geographic features named by the NIMA GEOnet Names Server.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
