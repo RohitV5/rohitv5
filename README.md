@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-230 is the country code for Mauritius.
+29 is the number of days it takes Saturn to orbit the Sun.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
