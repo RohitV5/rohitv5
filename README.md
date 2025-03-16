@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-43687 is the number of toilet related accidents in the United States in 1996.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
