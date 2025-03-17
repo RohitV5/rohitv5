@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-29 is the highest possible score in a hand of Cribbage or Khanhoo.
+91 is the code for international direct dial phone calls to India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
