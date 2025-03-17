@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-161 is the number of episodes the TV series The Avengers ran from 1961 to 1969.
+100 is the record number of points scored in one NBA game by a single player, set by Wilt Chamberlain of the Philadelphia Warriors on March 2, 1962 I.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
