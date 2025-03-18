@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the total number of books in the Protestant edition of the Bible (Old Testament and New Testament) combined.
+749 is the pounds of paper products used by an American individual annually on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
