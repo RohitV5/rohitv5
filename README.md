@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
+116 is the record for number of wins in a single season of Major League Baseball achieved by the Chicago Cubs in 1906 and the Seattle Mariners in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
