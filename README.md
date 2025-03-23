@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
