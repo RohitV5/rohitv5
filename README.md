@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-181 is the wing area of a Boeing 757 airplane in meters.
+192 is the atomic number of an element temporarily called Unennbium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
