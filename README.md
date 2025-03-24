@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+212 is the area code for Manhattan, one of the original area codes, and considered the most coveted in America.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
