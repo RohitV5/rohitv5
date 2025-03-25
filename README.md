@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the most points by a rookie in a NBA Playoff game (Philadelphia's Wilt Chamberlain, 1960).
+300 is the number of pounds per square inch of pressure to break the shell of Macadamia nuts.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
