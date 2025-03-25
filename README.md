@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is 187th Street in the Washington Heights section of Manhattan.
+100 is the number of blessings a religious Jewish person is expected to utter daily.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
