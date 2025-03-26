@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-66 is the number of hot dogs eaten by World record holder Joey Chestnut in 15 minutes.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
