@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
+60 is the total number of years in a Sexagenary cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
