@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-165 is the number of episodes that the TV show Daniel Boone ran on NBC from 1964 to 1970.
+550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
