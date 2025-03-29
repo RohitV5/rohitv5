@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the number of isomers of C11H24.
+116 is the atomic number of an element temporarily called ununhexium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
