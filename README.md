@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-150 is years in a sesquicentennial.
+11 is the possible age of the youngest elected pope, Benedict IX.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
