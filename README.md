@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-755 is the number of home runs Hank Aaron ended his career with in 1976, a Major League record at the time.
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
