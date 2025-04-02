@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-107 is a common police code denoting a suspicious person.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
