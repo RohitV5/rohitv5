@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-89 is the number of units of each colour in the board game Blokus.
+50 is the gold or "golden" wedding anniversary in years of marriage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
