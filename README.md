@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-118 is the beginning of directory enquiries numbers in the United Kingdom,France, Germany, Latvia, Sweden, Ireland, and Turkey.
+229 is the lowest individual batting score not achieved by any player in test match cricket.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
