@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-97 is the number of different characters that can be used with a standard English Keyboard.
+30 is the duration in years of the Thirty Years' War - 1618 to 1648.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
