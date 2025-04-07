@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-361 is the number of positions on a standard 19 x 19 Go board.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
