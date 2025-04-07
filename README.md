@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20 is the number of ounces in Venti size coffees at Starbucks coffee shops.
+19 is the number of years in 235 lunations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
