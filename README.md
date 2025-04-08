@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5 is the most common number of gears for automobiles with manual transmission.
+106 is the atomic number of seaborgium (Unilhexium Unh).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
