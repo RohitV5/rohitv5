@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the name of a hip hop, active 1990-2004.
+166 is the number of files that Actor Robert Ellis appeared in films between 1913 and 1934.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
