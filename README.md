@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-56 is the number of men who signed the United States Declaration of Independence in 1776.
+6.022e+23 is the number of molecules in one mole of any substance (Avogadro's number).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
