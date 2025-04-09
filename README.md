@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-187 is the atomic number of an element temporarily called Unoctseptium.
+30 is the number of years that tarantulas can live up to.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
