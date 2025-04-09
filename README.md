@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of files that Actor Robert Ellis appeared in films between 1913 and 1934.
+4200 is the number of standard size of a legion in the Roman Republic.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
