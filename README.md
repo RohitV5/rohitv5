@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-196 is the height of Mount Victoria, Wellington, a prominent hill near Wellington, New Zealand.
+192 is the number of days it took to form the 2007 Belgian government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
