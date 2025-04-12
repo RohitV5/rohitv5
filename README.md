@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-179 is the rank of the Anthology 1961-1977 (1992) by Curtis Mayfield and The Impressions on Rolling Stone magazine's list of the 500 greatest albums of all time.
+493 is the number of bronze knuts equivalent to one gold galleon, in the monetary system of the world of Harry Potter.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
