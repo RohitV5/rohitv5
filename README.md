@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110000 is the average number of hairs that people with black hair have.
+187 is 187th Street in the Washington Heights section of Manhattan.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
