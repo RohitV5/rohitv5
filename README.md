@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4294967296 is the number of bytes in 4 gibibytes.
+24 is the number of teams that participated in each FIFA World Cup finals tournament between 1982 and 1994.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
