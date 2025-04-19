@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-175 is years Harriet (1830–2006) the Galápagos tortoise lived.
+97 is the number of minutes it takes the Hubble space telescope to complete an orbit around the Earth.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
