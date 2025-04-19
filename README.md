@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+167 is the number of episodes of InuYasha, a Japanese manga series which ran from 1996 to 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
