@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-194 is the rank of Equatorial Guinea in population density.
+261 is number of possible unfolded tesseract patterns.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
