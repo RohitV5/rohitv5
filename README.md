@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the Calling code for Zaire.
+36 is the perfect score on the ACT.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
