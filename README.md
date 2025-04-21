@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
+199 is the number of hits MLB pitcher Alex Jones gave up in his career from 1889-1903.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
