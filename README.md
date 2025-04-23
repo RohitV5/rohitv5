@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2500 is the number of letters on a typical typed page of text.
+194 is the rank of Isle of Man in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
