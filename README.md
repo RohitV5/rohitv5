@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
+185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
