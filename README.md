@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-270 is the average number of days in human pregnancy.
+144 is the number of square inches in a square foot.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
