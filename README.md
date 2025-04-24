@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-70 is the number of years of marriage until the platinum wedding anniversary.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
