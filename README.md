@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the length (years) of the Eighty Years' War (1568–1648).
+161 is the the number of theatrical shorts of Tom and Jerry cartoons between 1940 and 1967.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
