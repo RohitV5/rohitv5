@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the total number of books in the Holy Bible in the Catholic version.
+250 is the number of Pokémon originally available in Pokémon Gold and Silver before Celebi was added.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
