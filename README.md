@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
