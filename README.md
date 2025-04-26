@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-146 is the Guinness World Record for the most languages a poem was recited in.
+5300 is the number of gum wrappers that Steve Fletcher has, the record for the largest gum wrapper collection.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
