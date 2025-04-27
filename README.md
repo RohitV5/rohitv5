@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
