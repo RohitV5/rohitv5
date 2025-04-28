@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-61 is the code for international direct dial phone calls to Australia.
+562 is the number of Native American (including Alaskan) Nations, or "Tribes," recognized by the USA government.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
