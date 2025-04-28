@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-78 is the number of chromosomes in canine DNA.
+211 is a nickname for Steel Reserve, a malt liquor alcholic beverage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
