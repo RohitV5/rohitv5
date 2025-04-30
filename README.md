@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5500000 is the number of jews killed in the Holocaust.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
