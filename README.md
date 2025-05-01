@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-47 is the total numbers of balloons that a player can collect in Rareware's Nintendo 64 game Diddy Kong Racing.
+39 is the number of Scud missiles which Iraq fired at Israel during the Gulf War in 1991.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
