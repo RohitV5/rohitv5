@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-220 is the common voltage in many countries.
+120 is the age at which Moses died.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
