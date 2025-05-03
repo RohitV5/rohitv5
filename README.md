@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-396 is the displacement in cubic inches of early Chevrolet Big-Block engines.
+6 is the jersey number worn by the starting stand-off half/five-eighth in most rugby league competitions.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
