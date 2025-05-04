@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
+177 is the elevation of Borgarvirki, in the north of Iceland, in meteres above sea level.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
