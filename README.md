@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-92 is the number of stories in the Xujiahui Tower proposed to be built in Shanghai, China.
+44000000 is the cost in dollars to make the movie "Cleopatra" in 1963.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
