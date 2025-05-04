@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-108 is the number of outlaws in the Chinese classic Water Margin/Outlaws of the Marsh.
+167 is the number of tennis titles that Martina Navratilova has, which is an all-time record for men or women.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
