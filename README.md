@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17 is the number of syllables in a haiku (5+7+5).
+198 is the number of episodes that Woody Harrelson appeared as Woody Boyd in Cheers (of 273 episodes) between 1985-1993.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
