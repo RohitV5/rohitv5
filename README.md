@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-243 is the number of Earth Days for the planet Venus to complete one Venetian day, one revolution.
+313 is the number of Muslims who fought in the Battle of Badr against Muhammad's, and by extension, Islam's, foes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
