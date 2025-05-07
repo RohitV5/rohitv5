@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
+10000 is the number of other neurons each neuron is connected to in the human brain.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
