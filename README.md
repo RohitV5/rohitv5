@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1000 is the number of elephants it took to bring in the material to build the Taj Mahal from various parts of India.
+30 is the percentage of methane on Earth produced from the flatulence of domesticated cows.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
