@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-160 is the number of characters permitted in a standard short message service in Australia and Europe.
+116 is the prefix for several EU-wide telephone helplines designated as harmonised service of social value.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
