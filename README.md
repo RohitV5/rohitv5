@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-132 is the number of columns of a Line printer printing in landscape mode on 14-inch paper.
+17 is the minimum driving age for a car or van in the United Kingdom.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
