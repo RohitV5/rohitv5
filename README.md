@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
+138 is the atomic number of Untrioctium, a temporary chemical element.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
