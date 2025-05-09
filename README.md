@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
+41 is the age at which writer/director Tom Graeff (of Teenagers from Outer Space fame) committed suicide.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
