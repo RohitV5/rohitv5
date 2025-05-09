@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-176 is the atomic number of an element temporarily called Unsepthexium.
+137 is a radioactive isotope of Caesium formed by nuclear fission.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
