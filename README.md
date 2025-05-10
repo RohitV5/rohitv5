@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+180 is the gent's clout shooting distance in archery measured in yards.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
