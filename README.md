@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-404 is the HTTP status code for "Not found", perhaps the most famous HTTP status code.
+73 is the single-season home run record in baseball set by Barry Bonds in 2001.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
