@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-235 is the atomic mass number of an important isotope of the element uranium, the fissile isotope which is used as the fuel for nuclear reactors and in some nuclear weapons.
+129 is the combined 2-year total of home runs for baseball's Sammy Sosa with 66 home runs in 1999 and 63 in 2000.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
