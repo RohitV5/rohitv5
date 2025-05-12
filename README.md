@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-714 is the number of home runs Babe Ruth scored in his career.
+53 is the maximum number of facial muscles a smile can require.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
