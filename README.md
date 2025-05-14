@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-383 is the cubic displacement in inches of a 350cid Small Block Chevrolet with a 400cid SBC crankshaft.
+63 is the number of chromosomes found in the offspring of a donkey and a horse.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
