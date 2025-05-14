@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188000 is the number of lakes in Finland, which is also known as "the land of of the thousand lakes".
+168 is the number of triples that Shoeless Joe Jackson hit in his MLB career.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
