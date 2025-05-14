@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
+194 is the number of episodes of I Love Lucy that ran on CBS from 1951 to 1960.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
