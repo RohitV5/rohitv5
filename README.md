@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1400000 is the number of species that have been named by the World Resources Institute.
+158 is the number of international goals scored by Mia Hamm for the USA women's team, an all-time record for either sex in soccer.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
