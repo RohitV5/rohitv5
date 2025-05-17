@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-208 is the wavelength in meters of Radio Luxembourg's English language service from 1951 to 1991.
+44 is the percentage of kids who watch television before they go to sleep in the US.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
