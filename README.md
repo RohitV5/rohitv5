@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the common voltage in England and Australia before conversion to 230V standard.
+140 is liters of water needed to produce 1 cup of coffee.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
