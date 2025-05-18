@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the atomic number of an element temporarily called Unoctbium.
+1979 is a song by American alternative rock band The Smashing Pumpkins.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
