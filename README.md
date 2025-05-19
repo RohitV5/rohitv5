@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-58000000 is the number of customers McDonald restaurants serve food and drink to on a daily basis in 2011.
+39 is the duration, in nanoseconds, of the nuclear reaction in the largest nuclear explosion ever performed (Tsar bomb).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
