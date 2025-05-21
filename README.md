@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the number of games in an NBA or NHL regular season.
+200 is the approximate number of volcanoes in Japan, which is home to 10% of the active volcanoes in the world.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
