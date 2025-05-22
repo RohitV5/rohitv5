@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the length (years) of the Eighty Years' War (1568–1648).
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
