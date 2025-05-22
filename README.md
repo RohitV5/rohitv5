@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-99 is the number of names of Allah, the names or attributes of God in the Qur'an.
+138 is essendon's losing margin against Adelaide in round 10 of the 2006 AFL season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
