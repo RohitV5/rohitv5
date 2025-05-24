@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the atomic mass number of the most common isotope of plutonium.
+113 is a number that is a rare lucky number, and has been written about by anthropologist Emily Anne McDonald.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
