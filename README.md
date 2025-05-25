@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is the cholesterol level above which is considered high risk.
+181 is the rank of SÃ£o TomÃ© and PrÃ­ncipe in world population.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
