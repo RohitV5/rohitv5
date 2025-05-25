@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is five gross (= 500 duodecimal, 5 × 144).
+164 is the atomic number of an element temporarily called Unhexquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
