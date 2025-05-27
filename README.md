@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-94 is the atomic number of plutonium.
+121 is the official end score for Cribbage.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
