@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-54 is the score in golf colloquially referred to as a perfect round.
+82 is the number of games in an NBA or NHL regular season.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
