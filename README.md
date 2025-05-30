@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1311000000 is the population of the People's Republic of China in 2007.
+199 is the population of Woodstock, Newfoundland and Labrador, Newfoundland and Labrador Canada according to the 2006 Census.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
