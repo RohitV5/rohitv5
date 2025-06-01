@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-149 is the number of goals a Madagascar soccer team scored against itself after the coach argued a call, and players kicked the ball into their own net 149 times.
+21 is the number of demands which were sent to the Chinese government by the Japanese government of Okuma Shigenobu in 1915.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
