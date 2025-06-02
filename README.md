@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Faroe Islands (Denmark) in world population density.
+199 is the number of leg hairs ripped by Andrew Reyna in one swift pull.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
