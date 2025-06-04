@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the medical emergency number in Ghana.
+183 is the rank of Laos in countries by population density.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
