@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the rank of Faroe Islands (Denmark) in world population density.
+40 is the customary number of hours in a regular workweek in some Western countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
