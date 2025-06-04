@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-40 is the customary number of hours in a regular workweek in some Western countries.
+99 is the highest jersey number allowed in most major league sports.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
