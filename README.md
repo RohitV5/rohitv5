@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-7000000000 is the estimated population for the world on 31 October 2011, the Day of Seven Billion.
+120 is the number of Men of the Great Assembly who canonized the Books of the Tanakh and formulated the Jewish prayers.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
