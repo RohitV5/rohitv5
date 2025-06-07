@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3.457e+181 is the number of ways to arrange the tiles in English Scrabble on a standard 15-by-15 Scrabble board.
+175 is the number of weeks that professional golfer David Toms spent in the top-10 of the Official World Golf Rankings between 2001 and 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
