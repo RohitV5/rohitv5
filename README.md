@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the record number of points scored in one NBA game by a single player, set by Wilt Chamberlain of the Philadelphia Warriors on March 2, 1962 I.
+157 is the elevation in meters of Atalanti Island in the North Euboean Gulf of the Aegean Sea.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
