@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the total number of letters in the Spanish alphabet (5 vowels and 22 consonants).
+243 is the number of isotopes or variations of elements calculated by Dr. Plichta.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
