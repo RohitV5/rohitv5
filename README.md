@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-188 is the range measured in miles of a fully charged electric battery-powered Lightning GT sports car.
+195 is the number of runs that Ollie Beard had in his MLB career from 1889-1891.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
