@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the number of Death in the In the Final Destination series.
+72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
