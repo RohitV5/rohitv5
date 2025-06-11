@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the speed in miles per hour that cheetahs, the fastest land animal, can reach.
+218 is votes required in the US House of Representatives to achieve a majority as of 2008.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
