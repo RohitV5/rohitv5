@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the number of times Paul McCartney sings the phrase "Let It Be" in the Beatles' hit Let It Be.
+30 is the duration in years of the Thirty Years' War - 1618 to 1648.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
