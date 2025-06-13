@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-749 is the pounds of paper products used by an American individual annually on average.
+168 is the number of episodes that Barney Miller ran on ABC from 1975 to 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
