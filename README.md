@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4294967296 is the number of bytes in 4 gibibytes.
+23 is the number of enigma that plays a prominent role in the plot of The Illuminatus! Trilogy by Robert Shea and Robert Anton Wilson.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
