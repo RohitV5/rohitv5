@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-432 is three-dozen sets of a dozen, making it three gross.
+171 is the top speed in miles per hours of the the Porsche Cayenne Turbo S automobile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
