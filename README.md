@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-202 is the HTTP status code indicating the request was accepted but has not yet been fulfilled.
+46 is the number of mountains in the 46 peaks of the Adirondack mountain range.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
