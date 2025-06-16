@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-3500000000000 is the estimated population of fish in the ocean.
+64 is the number of Braille characters in the old 6-dot system.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
