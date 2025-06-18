@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-14 is the number of times that a typical dairy cow lies down and stands up a day on average.
+33 is the temperature at which water boils according to the Newton scale.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
