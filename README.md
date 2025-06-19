@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-195 is the rank of South Ossetia Georgia in population density.
+74 is the atomic number of tungsten.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
