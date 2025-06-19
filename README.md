@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-63 is the number of chromosomes found in the offspring of a donkey and a horse.
+6.28e+57 is the number of keys in the AES 192 bit key space (symmetric cipher).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
