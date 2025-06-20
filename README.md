@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-133 is the common processor speed in MHz for common 32-bit processor CPUs circa 1995 such as the Intel Pentium and AMD AMD K5.
+199 is the number of hits MLB pitcher Alex Jones gave up in his career from 1889-1903.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
