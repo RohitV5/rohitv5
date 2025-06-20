@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1337 is the weight in pounds of the biggest pumpkin in the world.
+191 is the atomic number of an element temporarily called Unennunium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
