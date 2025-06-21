@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-950000 is the pounds of bacon that Burger King restaurants prepare each year for their breakfast customers.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
