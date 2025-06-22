@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-239 is the number of chapters in the Book of Mormon.
+167 is the kilometers in length of Andros, Bahamas.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
