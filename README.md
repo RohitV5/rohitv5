@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of human blood groups (A, B, O, AB).
+365 is the number of solar days in the mean tropical year.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
