@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the number of days it took to form the 2007 Belgian government.
+191 is the number of episodes for the different regions in the PokÃ©mon anime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
