@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-5000 is the number of base pairs in the DNA of the simplest viruses.
+70 is the distance (meter) from archer to targets in Olympic Archery.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
