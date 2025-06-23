@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-242 is the number of a notable UN Security Council resolution pertaining to the Arab/Israeli conflict.
+10000000000 is the number of bacteria in the human oral cavity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
