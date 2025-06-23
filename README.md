@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is total number of types of Pokémon in the original set.
+191 is the number of episodes for the different regions in the PokÃ©mon anime.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
