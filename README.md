@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-496 is what the dimension of the gauge group must be for a superstring theory to make sense.
+52 is the number of white keys (notes in the C major scale).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
