@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+343 is the speed of sound in dry air at 20 °C (68 °F) in m/s.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
