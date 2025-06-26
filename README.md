@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-17000 is the length in km of bicycle lanes with special bicycle traffic lights in the Netherlands.
+110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
