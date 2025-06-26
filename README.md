@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-9801 is the dominant Japanese brand name of NEC's personal computers in the 1980s.
+174 is the length in miles of the The Columbia University Library System collection, with over 9.3 million volumes, if stretched end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
