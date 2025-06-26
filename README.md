@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-213 is the radical meaning "turtle", one of only two of the 214 Kangxi radicals that are composed of 16 strokes.
+57 is the number of cm that the smallest man measured, Gul Mohammed (1957-1997) of India.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
