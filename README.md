@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-110 is a common name for mains electricity in North America, despite the nominal voltage actually being 120V (range 110-120).
+151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
