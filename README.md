@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-174 is the populatiokn of Aupaluk, Quebec (as of 2006).
+1e+40 is the Eddington–Dirac number.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
