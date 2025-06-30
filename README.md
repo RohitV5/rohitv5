@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-140 is the character-entry limit for Twitter, a well-known characteristic of the service (based on the text messaging limit).
+181 is the number of passengers aboard TAM Airlines Flight 3054 which crashed upon landing in SÃ£o Paulo on July 17, 2007.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
