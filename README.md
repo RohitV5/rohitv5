@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-131 is the number serving a monkiker for Indie music.
+60 is the total number of years in a Sexagenary cycle.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
