@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a trick used in extreme sports where a rider rotates half a turn while airborne and lands.
+162 is 162 is the total number of baseball games each team plays during a regular season in Major League Baseball.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
