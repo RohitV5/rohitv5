@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-267 is the number of groups of order 64.
+216 is the ISO's standard for paper sizes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
