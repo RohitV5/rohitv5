@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-80 is the percentage of American men who say they would marry the same woman if they had it to do all over again.
+35 is the minimum age of candidates for election to the United States Presidency.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
