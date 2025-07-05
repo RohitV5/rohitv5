@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1 is the number of dimensions of a line.
+900000000 is the approximate number of trees cut down in a year to make the raw materials for US pulp mills and paper.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
