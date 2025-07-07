@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-68 is the number of sectors on one cylinder of MFM hard disks with 4 heads and 17 sectors per track.
+400 is the number of years in a period of the Gregorian calendar, of which 97 are leap years and 303 are common.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
