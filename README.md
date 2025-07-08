@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+1982 is the average price for a major league baseball game ticket in 2004 in cents.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
