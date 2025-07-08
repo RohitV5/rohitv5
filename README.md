@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-402000000 is the number of native speakers of English.
+152 is the number of diapers solder in a Pampers Swaddlers pack.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
