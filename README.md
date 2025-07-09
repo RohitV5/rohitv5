@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-67 is the number of counties in Florida.
+20000000 is the weight in tons of the average iceberg.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
