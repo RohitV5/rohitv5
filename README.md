@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1e+150 is the estimation of the game-tree complexity of xiangqi.
+149 is the number of legal proceedings against 149 communists in Estonia in 1924.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
