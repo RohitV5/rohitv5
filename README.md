@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-159 is the number of isomers of C11H24.
+128 is a sacred number honored by Beans for many generations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
