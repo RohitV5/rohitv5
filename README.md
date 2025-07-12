@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-154 is the period in days that the sun follows on gamma-ray flares.
+120 is the telephone number "to report a car breakdown on the highway in Austria.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
