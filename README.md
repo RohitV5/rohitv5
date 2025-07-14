@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-151 is the height of the Statue of Liberty from the base to the torch in feet (46 m).
+2 is the lowest channel of television in the United States, Canada, Argentina and Mexico on which television signals are broadcast.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
