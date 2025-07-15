@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-50 is the height in kilometres that a volcano can shoot ash into the sky.
+204 is the HTTP status code indicating the request was received but there is no response to the request.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
