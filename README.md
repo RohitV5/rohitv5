@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-192 is the population of Bide Arm in Newfoundland and Labrador, Canada.
+220 is the common voltage in many countries.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
