@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the California Penal Code for "Offer bribe to influence testimony".
+626 is the number of compositions of Wolfgang Amadeus Mozart, according to the Köchel Catalogue.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
