@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the gent's clout shooting distance in archery measured in yards.
+250000 is the number of drivers that fall asleep while driving each day in the US, according to Harvard Medical School.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
