@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4 is the number of human blood groups (A, B, O, AB).
+5 is the number of basic tastes (sweet, salty, sour, bitter, and umami).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
