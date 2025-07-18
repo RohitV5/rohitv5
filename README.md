@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-177 is the all-time titles record held by Tennis Hall of Famer Martina Navratilova.
+104 is the number of guns on Admiral Horatio Nelson's flagship HMS Victory.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
