@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-112 is the atomic number of the element copernicium (formerly called ununbium).
+73 is the percentage of girls in Bangladesh that are married by age 18.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
