@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is a number that in an astrological aspect is considered to be negative in influence.
+51 is the atomic number of antimony.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
