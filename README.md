@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-204 is the HTTP status code indicating the request was received but there is no response to the request.
+165 is the miles that twenty-mule teams, which were mules and horses attached to wagons, traveled from mines to the nearest railroad spur, 165 miles (275 km) away in Mojave, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
