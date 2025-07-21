@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-154 is the period in days that the sun follows on gamma-ray flares.
+144 is a gross (a dozen dozen).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
