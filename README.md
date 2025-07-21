@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-101 is a number used to define the number of keys on a computer keyboard.
+73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
