@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-12 is the number of months in a year.
+101 is a number used to define the number of keys on a computer keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
