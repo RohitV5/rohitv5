@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-164 is the number of home runs the Baltimore Orioles hit in 2006.
+151 is the number of episodes that TV series Malcolm in the Middle ran on the Fox Network from 2000 to 2006.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
