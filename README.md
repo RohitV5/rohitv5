@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-34 is the lucky number of Victor Pelevin's protagonist Stepan Mikhailov in the novel Numbers.
+500 is the winning permillage (tenth of a percent) of a sports team with equal numbers of wins and losses.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
