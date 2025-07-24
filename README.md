@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-36 is the number of vehicles that run in each race of NASCAR's Camping World Truck Series.
+613 is the number hung from the rafters at Madison Square Garden in honor of New York Knicks coach Red Holzman's 613 victories.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
