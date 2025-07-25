@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-52 is the number of cards in a standard deck of playing cards, not counting Jokers or advertisement cards.
+7 is the approximate number of years in the lifespan of Irish Wolfhound dogs.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
