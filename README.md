@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the distance a single playing card was thrown in feet by Kevin St. Onge to set a Guinness World Record.
+64374 is the number of km in length the greatest mountain range extends from (Arctic Ocean to the Atlantic Ocean).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
