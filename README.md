@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
+107 is the number of Nobel Prize in Literature laureates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
