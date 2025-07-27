@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-614 is the number of Commandments, according to Rabbi Fackenheimin, that should be in Judaism, vs. the traditional 613.
+2 is the number of stars in a binary star system (a stellar system consisting of two stars orbiting around their center of mass).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
