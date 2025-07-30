@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-147 is the final score of the losing team in the NBA game in which Wilt Chamberlain scored 100 points.
+195 is the population of Guedanga, in the Ouo Department of ComoÃ© Province, Burkina Faso.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
