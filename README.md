@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-129 is the atomic number of Unbiennium, an element yet to be discovered.
+135 is the height of the World's tallest thermometer in feet located in Baker, California.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
