@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-712 is the largest known number such that it and its 8th power have no common digits.
+Infinity is the largest value that can be represented in the IEEE double precision floating-point format.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
