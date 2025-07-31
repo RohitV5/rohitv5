@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-33 is the number of workers trapped, and also the number of survivors of the 2010 Copiapó mining accident.
+108 is the number of moves in several different Taijiquan long forms.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
