@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-53 is the number of bytes in an Asynchronous Transfer Mode packet.
+693 is the number of sections in Ludwig Wittgenstein's Philosophical Investigations.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
