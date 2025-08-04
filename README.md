@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-720 is the number of degrees in two circles (= 2 × 360).
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
