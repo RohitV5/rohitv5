@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-384 is the apogee (farthest distance from Earth) of the expeditions to the International Space Station in km.
+126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
