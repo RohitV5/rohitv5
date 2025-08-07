@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-4e+185 is the number of planck volumes in the observable universe.
+216 is the number of stitches on a baseball, according to the Ken Burns series "Baseball".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
