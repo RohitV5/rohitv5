@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-214 is the SMTP status code for help message.
+164 is the atomic number of an element temporarily called Unhexquadium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
