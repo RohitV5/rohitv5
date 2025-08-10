@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
