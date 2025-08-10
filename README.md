@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-106 is the maximum number of characters filenames can have in Joliet, an extension to the ISO 9660 file system.
+169 is the height in feet of The Oak Island Lighthouse on Oak Island, North Carolina.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
