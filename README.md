@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-84 is the atomic number of polonium.
+22 is the number of stars in the Paramount Films logo.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
