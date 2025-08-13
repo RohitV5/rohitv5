@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-30 is the duration in years of the Thirty Years' War - 1618 to 1648.
+273 is the death toll of the air crash of American Airlines Flight 191.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
