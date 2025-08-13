@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-114 is the number of chapter in the Quran, the holy book of Islam contains 114.
+6000000 is the number of beavers in Canada before the fur trade started.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
