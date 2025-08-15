@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-183 is the id number of Issam Hamid Al Bin Ali Al Jayfi, a detainee at Guantanamo Bay.
+141 is the number of participants (90 Indians and 51 Pilgrims) at the First Thanksgiving.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
