@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-186 is the rank of Somaliland in countries by population density.
+120 is liters of water needed to produce 1 glass of wine.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
