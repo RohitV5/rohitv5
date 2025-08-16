@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-20000000000 is the approximate number of coconuts produced worldwide each year.
+195 is the number of runs that Ollie Beard had in his MLB career from 1889-1891.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
