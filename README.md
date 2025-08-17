@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the standard length (year) of a term in office for a United States senator.
+214 is the SMTP status code for help message.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
