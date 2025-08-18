@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-27 is the number of outs in a regulation baseball game for each team at all adult levels.
+100 is the approximate number of eyes a scallop has around the edge of its shell.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
