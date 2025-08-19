@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-82 is the atomic number of lead.
+-Infinity is negative infinity.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
