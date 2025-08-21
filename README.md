@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-55 is the common speed limit for rural secondary roads and many urban freeways in many states of the United States.
+184 is a weight class in collegiate wrestling, 184 lb (83 kg).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
