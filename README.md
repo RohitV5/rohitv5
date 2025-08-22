@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-73 is the length of the Arecibo message sent to space in search for extraterrestrial intelligence.
+180 is the number of Death in the In the Final Destination series.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
