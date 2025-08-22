@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-125000 is the number of average strands of hair in the human head.
+2701 is a plot triviality in Neal Stephenson's "Cryptonomicon".
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
