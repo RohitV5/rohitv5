@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-120 is liters of water needed to produce 1 glass of wine.
+90000 is the average number of hairs that redheads have.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
