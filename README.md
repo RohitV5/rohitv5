@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-81 is the number of stanzas or chapters in the Tao te Ching (in the most common arrangements).
+158 is days it took for the Surprize ship that set sail from England on January 19, 1790, to make port in Port Jackson, Sydney, Australia on June 26, 158 days later.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
