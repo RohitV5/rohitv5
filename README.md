@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100000000000000 is the number of cells in the the human body, of which only 10^{13} are human. The remaining 90% non-human cells are bacteria.
+41 is the reported number of survivors aboard the USS Neptune, in the 1978 disaster film Gray Lady Down, upon its initial depth position of 1,450 feet.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
