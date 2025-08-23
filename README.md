@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is distinct solutions of the Soma cube puzzle.
+131 is the medical emergency telephone number in Chile.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
