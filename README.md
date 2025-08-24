@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-180 is the number of films American film actor John Wayne starred in.
+60 is the total number of cards in the game Racko.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
