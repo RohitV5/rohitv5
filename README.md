@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-190 is the length in minutes of the Right Stuff.
+215 is the Dewey Decimal Classification for Science and religion.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
