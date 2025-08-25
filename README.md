@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-172 is the atomic number of an element temporarily called Unseptbium.
+76 is the atomic number of osmium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
