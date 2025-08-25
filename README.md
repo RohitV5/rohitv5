@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the Saros cycle; the next solar eclipse in this cycle is predicted to take place in AD 3223.
+276 is the highest number of rounds in boxing history, in a bare-knuckle fight in 1825 that saw Jack Jones beat Patsy Tunney after 4hr 30min.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
