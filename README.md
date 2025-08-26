@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-171 is the record number of goals scored by France at the 1998 World Cup.
+128 is the atomic number of unbioctium, an element yet to be discovered.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
