@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the number of strings on a standard guitar.
+500000 is the number of tons of dog excrement dumped annually on the streets of Paris.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
