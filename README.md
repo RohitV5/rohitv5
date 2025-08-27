@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-185 is the name of an improve improv game where, given a subject from the audience, players make up jokes beginning with "185 (blanks) walk into a bar.
+166 is the number of points the Dow Jones Industrials fell on June 24, 2005.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
