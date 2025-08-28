@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the minimum distance in yards for a Par 3 on a golf course.
+150 is the speed in miles per hour that pucks hit by hockey sticks have reached.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
