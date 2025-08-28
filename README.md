@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-113 is the number of surat al-Falaq in the Qur'an.
+40 is the number of weeks for an average term of pregnancy, counting from the woman’s last menstrual period.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
