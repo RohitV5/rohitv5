@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-173 is the number of hair strands used to animate Rapunzel's 70 meter long hair in Tangled (2010).
+166 is the number of athletes (104 men and 62 women) that represented Scotland in the 2006 Commonwealth Games in Melbourne, Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
