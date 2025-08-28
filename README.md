@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of completed, numbered piano sonatas by Ludwig van Beethoven.
+74 is the atomic number of tungsten.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
