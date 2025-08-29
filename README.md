@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-22834 is the feet above sea level of the highest mountain in the Western Hemisphere, Mount Aconcagua in Argentina.
+101 is a number used to define the number of keys on a computer keyboard.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
