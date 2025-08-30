@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-100 is the approximate number of eyes a scallop has around the edge of its shell.
+30000 is the number of distinct Chinese characters.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
