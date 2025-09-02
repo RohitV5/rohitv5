@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-135 is the hottest temperature ever measured in the United States in Fahrenheit  at Death Valley, California on July 10, 1913.
+221 is the house number on Baker Street of the fictional London residence of Sherlock Holmes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
