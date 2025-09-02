@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-240 is distinct solutions of the Soma cube puzzle.
+84 is the atomic number of polonium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
