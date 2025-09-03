@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-144 is the Intel 8086 instruction for no operation (NOP).
+145 is the atomic number of Unquadpentium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
