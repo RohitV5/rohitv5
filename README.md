@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-182 is the carat of the Star of Bombay cabochon-cut star sapphire originating from Sri Lanka.
+174 is the number of miles the Columbia University Library System collection, with over 9.3 million volumes, would stretch end-to-end.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
