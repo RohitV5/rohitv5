@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-201 is the title of an episode of South Park.
+720 is five gross (= 500 duodecimal, 5 × 144).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
