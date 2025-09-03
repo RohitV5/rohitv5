@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-191 is the number of episodes for the different regions in the PokÃ©mon anime.
+108 is a number prominently related in the symbolism associated with karate, particularly the GÅjÅ«-ryÅ« discipline.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
