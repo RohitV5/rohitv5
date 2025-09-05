@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-88 is the number of constellations in the sky as defined by the International Astronomical Union.
+7e+22 is the number of stars within range of telescopes (as of 2003).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
