@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-6 is the standard length (year) of a term in office for a United States senator.
+35 is the percentage of all bingo players are under the age of 35.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
