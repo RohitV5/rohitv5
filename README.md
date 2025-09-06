@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-59 is the number of days, approximately in two lunar months.
+7 is the number of days in a week.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
