@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-95 is the percentage confidence interval that is considered satisfactory for most purposes in statistics.
+555 is the number of keyboard sonatas written by Domenico Scarlatti, according to the catalog by Ralph Kirkpatrick.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
