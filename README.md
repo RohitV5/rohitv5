@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-72 is the percentage of water of which the human body is composed.
+69 is the number Bill and Ted were thinking of when talking to their future selves.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
