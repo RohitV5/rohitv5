@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25 is the number of fruits that a grapefruit cluster can have up to.
+Infinity is the estimation of the game-tree complexity in the game of Go.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
