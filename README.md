@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-441 is the number of squares on a Super Scrabble board.
+72 is the number of disciples of Confucius.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
