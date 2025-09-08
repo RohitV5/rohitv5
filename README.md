@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-206 is the number of bones in the typical adult human body.
+161 is the number of games that former German soccer referree Gerd Hennig refereed between 1964 and 1982.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
