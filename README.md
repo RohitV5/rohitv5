@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-41 is the reported number of survivors aboard the USS Neptune, in the 1978 disaster film Gray Lady Down, upon its initial depth position of 1,450 feet.
+86 is the device number for a lockout relay function in electrical circuit protection schemes.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
