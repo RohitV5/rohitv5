@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8e+120 is the ratio of the mass-energy in the observable universe to the energy of a photon with a wavelength the size of the observable universe.
+120 is the weight in shekels of the gold spoons offered by each tribe of Israel.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
