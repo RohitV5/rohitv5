@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-8674 is the number of unique words in the Hebrew Bible.
+12 is the number of ounces in a troy pound (used for precious metals).
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
