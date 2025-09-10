@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-1500 is the approximate number of peanut butter sandwiches the average American kid will eat by high school graduation.
+39 is the number of signers to the United States Constitution, out of 55 members of the Philadelphia Convention delegates.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
