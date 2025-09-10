@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-550 is the number of accidents per day that falling asleep while driving results in in the United States on average.
+222 is the number for Historical Books of the Old Testament in the Dewey Decimal System.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
