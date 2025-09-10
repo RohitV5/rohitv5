@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-343 is the number of frames in which U.S. President John F. Kennedy's presidential limousine can be seen in the Zapruder film.
+105 is the atomic number of hahnium, also known as dubnium.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
