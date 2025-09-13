@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-138 is the number of constellations of the Triakis tetrahedron.
+17 is 'the least random number' as described at MIT, according to hackers' lore.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
