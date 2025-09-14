@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-166 is the number of minutes the average US worker toils each working day just to pay income tax.
+235 is the number of three interstate highways in the United States, located in the states of Iowa, Kansas, and Oklahoma.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
