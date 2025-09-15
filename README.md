@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-25000000 is the number of different inhabited planets in the the Galactic Empire.
+61 is the code for international direct dial phone calls to Australia.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
