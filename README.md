@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-32 is the number of brains a leech has.
+6 is the number of orders of the Mishnah.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
