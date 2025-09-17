@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-137 is the average brain mass of a baboon in grams.
+32 is the number of brains a leech has.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
