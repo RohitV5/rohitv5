@@ -1,5 +1,5 @@
 ## :smile: Hello! Did you know that... :smile:
-126 is the seventh magic number in nuclear physics (2, 8, 20, 28, 50, 82, 126).
+118 is the number of decibels of the loudest burp, held by record-holder Paul Hunn, which is as loud as a chainsaw.
 
 <sup>(come back in 5 minutes for the next trivia)</sup>
 
